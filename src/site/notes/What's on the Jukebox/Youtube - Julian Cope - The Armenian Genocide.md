@@ -1,0 +1,10 @@
+---
+{"dg-publish":true,"permalink":"/what-s-on-the-jukebox/youtube-julian-cope-the-armenian-genocide/"}
+---
+
+
+# [Julian cope - the armenian genocide](https://www.youtube.com/watch?v=BfPoZsgWuOg)
+
+
+
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/BfPoZsgWuOg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
