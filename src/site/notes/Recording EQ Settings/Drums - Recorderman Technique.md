@@ -1,0 +1,15 @@
+---
+{"dg-publish":true,"permalink":"/recording-eq-settings/drums-recorderman-technique/","tags":["Keep/Label/Mixing","Keep/Label/Drums"]}
+---
+
+
+The kick and snare positions are really a matter of moving the mics until you achieve a sound that you like. Moving the mic on the snare can be the solution if you are hearing to much “ring,” or if the drum is too tubby. Move that mic until it sounds good. The kick is even more straightforward. Find the sound hole, and then move it in or out until you are getting the desired punch and “woof” of the kick. These mics are intended to enhance the sound of the kick and snare along with the overheads.
+
+The first overhead mic is the mic that is directly over the snare, pointing to the center of the snare drum head.  We started calling this the “anchor” of the overhead as it is centered over the kit. We like to go closer to 2.5 to 3 drumsticks above the snare, which, depending on what you read, may seem higher than others suggest. This provides more room to the drummer and gets you a little more of an open sound. In your room, you may find that you are getting too many reflections and room sounds at that height. If so, bring the mic closer to two sticks, or until the sound is better.  
+
+Once you have the mic above the snare sorted, you’ll pull a string or a mic cable from the beater of the kick drum to the overhead mic, then back to the center of the snare. KEEP THAT RATIO!  You want to move the second overhead mic to the place above the drummer’s opposite shoulder that matches the same kick and snare distance. You want to orient the mic so it is also pointing directly at the center of the snare head. There is really only one place this mic can go (and this is what makes “recorderman” such an easy setup). As you move one mic closer or further away, you need to check your distances to make sure that you are still the same distance from both the kick and snare. The magic of this setup is that you are going to get an in-phase recording with very minimal problems.
+
+For these mixes, we did some very basic panning for the overhead mics: about 35% left for the snare OH and 35% right for the OH that was over the drummer’s shoulder. We probably wouldn’t pan our overheads farther than that with this setup. In fact, some of us preferred it tighter, but this is all to taste. This setup is somewhat of an asymmetrical setup, so as it gets wider with panning, the kick and snare may become a bit lopsided in the mix and you’ll lose that nice tight sound. If you are looking for a wider, roomier sound, a spaced pair may make more sense for your mix. We set left and right from the drummer’s perspective and not from the audience’s perspective. Keep this in mind (audience vs. drummer perspective) as you are building your mix and as you plan for where other instruments may need to sit. We brought the OH levels up until they were matched on peaks and at a level we liked. We then brought up the kick to bring more impact to the recording. The snare then came to its level so that we get more attack and pop from the snare. The kick and snare mics are there to help enhance the overall sound of the kit.
+
+
+
