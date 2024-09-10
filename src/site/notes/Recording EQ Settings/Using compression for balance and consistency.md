@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/recording-eq-settings/using-compression-for-balance-and-consistency/","tags":["Keep/Label/Mixing","Keep/Label/Compression"]}
 ---
 
-
+# Compression for balance
 
 One of the most common uses of a compressor is simply to balance out the level of a signal and make its dynamic range more consistent. This is useful because, if a signal’s dynamic range is too great, it can be difficult to set the fader to one position for the whole song. Take for example a vocalist who performs a take with varying dynamics. If you set the fader to the correct spot for the quiet parts of the performance, then the vocals will be too loud during the louder parts. If you set the fader for the louder parts, then the vocals will be too quiet during the quieter parts. This is true of any instrument that exhibits a fair amount of dynamic range.
 

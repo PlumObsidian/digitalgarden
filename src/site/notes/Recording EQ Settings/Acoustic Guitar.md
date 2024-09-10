@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/recording-eq-settings/acoustic-guitar/","tags":["Keep/Label/Mixing","Keep/Label/Acoustic-Guitar"]}
 ---
 
+# Acoustic guitar
 
 80-100Hz: Bottom / muddiness
 100-240Hz: Body

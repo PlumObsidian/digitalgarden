@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/recording-eq-settings/piano-eq/","tags":["Keep/Label/Mixing","Keep/Label/Piano"]}
 ---
 
+# Piano EQ
 
 Piano EQ:
 30-50Hz: Pedal noise

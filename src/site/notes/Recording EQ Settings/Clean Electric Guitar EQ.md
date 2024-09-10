@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/recording-eq-settings/clean-electric-guitar-eq/","tags":["Keep/Label/Mixing","Keep/Label/Electric-Guitar"]}
 ---
 
-
+# Clean Electric Guitar
 
 50-60Hz: Mains hum
 80-250Hz: Muddiness

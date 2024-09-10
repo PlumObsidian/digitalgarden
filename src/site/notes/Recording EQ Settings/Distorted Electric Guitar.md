@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/recording-eq-settings/distorted-electric-guitar/","tags":["Keep/Label/Mixing","Keep/Label/Electric-Guitar"]}
 ---
 
-
+# Distorted Electric Guitar
 
 50-60Hz: Mains hum
 100Hz: Muddiness

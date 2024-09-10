@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/recording-eq-settings/using-compression-to-add-punch-energy-and-excite/","tags":["Keep/Label/Mixing","Keep/Label/Compression"]}
 ---
 
-
+# Compression Punch
 
 In addition to balancing levels with a compressor, you can also use a compressor to add punch, energy, and excitement to your tracks. To achieve this, the process is a little different. Rather than turning down entire notes in the way that you do when balancing signals, you instead use the compressor to alter the dynamics within individual notes. This is achieved by altering the relationship between a note’s attack and decay. This is known as ‘reshaping’ the note’s ‘envelope’.
 

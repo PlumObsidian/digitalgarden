@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/recording-eq-settings/vocal-eq/"}
 ---
 
-
+# Vocal EQ
 
 Vocal EQ:
 100-400Hz: Fullness

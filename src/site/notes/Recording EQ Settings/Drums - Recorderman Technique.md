@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/recording-eq-settings/drums-recorderman-technique/","tags":["Keep/Label/Mixing","Keep/Label/Drums"]}
 ---
 
+# Drums -  Recorderman Technique
 
 The kick and snare positions are really a matter of moving the mics until you achieve a sound that you like. Moving the mic on the snare can be the solution if you are hearing to much “ring,” or if the drum is too tubby. Move that mic until it sounds good. The kick is even more straightforward. Find the sound hole, and then move it in or out until you are getting the desired punch and “woof” of the kick. These mics are intended to enhance the sound of the kick and snare along with the overheads.
 

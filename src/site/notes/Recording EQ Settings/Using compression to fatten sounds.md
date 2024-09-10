@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/recording-eq-settings/using-compression-to-fatten-sounds/","tags":["Keep/Label/Mixing","Keep/Label/Compression"]}
 ---
 
-
+# Compression fatten
 
 Using compression can also be a way of making signals in your mix sound fatter and fuller. Just like the previous example, you achieve this by reshaping the notes. This time, you alter the note by emphasizing its decay. To do this, you need to use a fast attack to attenuate the natural attack of an instrument’s notes. You also use a fast release. That way, the attenuation ceases quickly enough to allow the note’s decay to be unaffected.
 

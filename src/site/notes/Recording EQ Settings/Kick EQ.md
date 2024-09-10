@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/recording-eq-settings/kick-eq/","tags":["Keep/Label/Mixing","Keep/Label/Drums"]}
 ---
 
-
+# Kick EQ
 
 60-100Hz: Thump
 100-250Hz: Roundness
