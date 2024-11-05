@@ -30,6 +30,8 @@ One observer remarked: ‘Peter’s consumption was ridiculous. I’d worked wit
 
 But function, he did. The band shared corridors with David Bowie, Lou Reed and Iggy Pop at Underhill Studios in Greenwich and, instead of sending demos to add to record labels’ cassette mountains, they had vinyl. They hired Anerley Town Hall to play their first gig to an invited audience of about 300. 
 
+
+
 ![](/img/user/ReadItLater Inbox/assets/IMG_3412.jpeg)
 
 Rock and/or roll
