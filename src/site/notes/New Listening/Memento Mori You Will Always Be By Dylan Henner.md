@@ -1,0 +1,31 @@
+---
+{"dg-publish":true,"permalink":"/new-listening/memento-mori-you-will-always-be-by-dylan-henner/"}
+---
+
+[[ReadItLater\|ReadItLater]] [[Article\|Article]]
+
+
+
+# [Memento Mori: You Will Always Be By Dylan Henner](https://thequietus.com/quietus-reviews/album-of-the-week/dylan-henner-you-will-always-be-review/)
+
+Newness and comforting familiarity are in conversation on Dylan Henner’s \*You Will Always Be\*, another great ambient record about death
+
+Thematic explorations of death, memory and longing for the past aren’t new for ambient music. In some cases, focusing on these weighty topics have made the genre into a bit of a meme to baffled outsiders. In 2020, The Caretaker’s *Everywhere at the End of Time* became an unlikely and uncomfortable [TikTok challenge](https://www.npr.org/2020/10/22/926607585/tiktok-the-caretaker-challenge-avant-garde). Users posted clips of themselves listening to all four stages of the six-hour record, which was written to mirror gradual decaying memory within dementia patients. It was shared as an endurance test, or even a potential danger to your health, existing somewhere between avant-garde cinnamon challenge or *Ringu*\-adjacent creepypasta in the minds of impressionable listeners who had stumbled upon it. Four years after its release, the cult favourite was earning widespread notoriety, while cementing an ambient music cliché. 
+
+Dylan Henner’s *You Will Always Be* is yet another ambient record about death. The elusive UK-based composer ticks the typical boxes. There are the wordy and earnest song titles, like ‘Everyone I’ve Ever Loved Lives Here Together’, or ‘My Heart Is Slowing Down and Soon It Will Have To Stop’. There’s birdsong and garbled conversations flitting in the background. There’s marimba and minimalism. Henner is playing all the hits. But what his record underlines is that even in the well-worn corners of a sound, new feelings can be uncovered. Through bright textures and childlike melodies, he brings his individual experience into focus.  In that way, it makes the record a wondrous counterpoint to the slow march to desolation from *Everywhere at the End of Time*. Death may be inevitable, but how we approach it is up to us. 
+
+*You Will Always Be* follows Henner’s 2020 album *The Invention of Human*, another weighty piece of storytelling-through-minimalism which looked at civilization in its entirety. Henner now narrows the scope to just one life, while working with familiar sounds. The album tells the story of a single existence from birth to death, with cyclical melodies that symbolise new discoveries and experiences fossilising into warm memories that eventually slip out of our grasp. Inspired by the death of his grandparents and the birth of his daughter in quick succession, the record has a personal significance, while still allowing us to bring in our own reflections. 
+
+The record’s hypnotic loops are tangible enough to be felt, but still gauzy and transient. Unlike many of the records it could be compared to, Henner works with clever restraint. Tracks melt into each other with surprising brevity. The ghostly opening phrase from ‘We Were So Young That We’ll Never Grow Old’ becomes a new song before we can even register it, and suddenly our life has moved on to the next stage. New life and old memories coalesce on ‘With Her First Steps She Walked To Me and Was So Happy’, where his daughter’s adventurous beginnings are told through spritely looping clarinets and pensive synth pads. 
+
+That pensive feeling grows on the following ‘Today I Taught Them How To Skip Stones Across the Lake’, with chords that quietly mourn a loss that hasn’t even happened yet. Through light, spacious compositions and gentle, welcoming atmospheres, he lets you fill in the blanks from your own bank of treasured memories. 
+
+There’s stillness on ‘These Photos of My Children Make Me Want To Climb Into the Frame’, where digital bells take their time to ring out around us. This barely-there approach gives more heft to moments like the opener, which evokes birth with overwhelming, resonant bass, and a celebratory melodic unravelling. For as huge as moments like that feel, they’re just as quickly gone, destined to be swallowed up by the infinite present. 
+
+Given its an ambient record about death, the tempo does eventually slow down to zero. Parts begin to decay, and reverb washes over everything. But even here, in the most typical of ambient exercises, are surprises and deep feelings. ‘My Heart Is Slowing Down and Soon It Will Have To Stop’, has an in-the-moment improvisational quality to its plucked synths, which centre on a small cluster of notes pinging off in different combinations, as if reaching for newness and meaning with a limited vocabulary. Textures from the opening of the record re-emerge, calling us homeward. 
+
+Closer ‘I Hope I Will Be Remembered As A Good Person’ provides a gorgeous close, with an angelic bed of sounds calling us forever upward. It’s certainly more hopeful than might be expected from the end of everything as you know it, with just a flash of the expected discordant disintegration in the final moments – a mercy killing of sorts. That’s how we’d all like to go, I guess. 
+
+Dylan Henner’s work is rejuvenating and universal, making it an ideal starting point for those looking to explore the existential side of ambient. It’s a comfort-watch of a show whose actors have long since passed away, bringing all the sinking feelings that come with that idea. 
+
+The TikTok teens won’t be as gripped, given it doesn’t reach the terrifying conclusions of what’s come before. But perhaps those viral challenges have got a bad rap. Listening to something as heavy as The Caretaker can be isolating; sharing that feeling widely with other people, even in a goofy meme format, gives us a way of acknowledging that other people are feeling the same dread. Henner is doing that too. He reaches out to the listener directly, letting us share in his own dread through the record’s ritualistic presentation. By the time it ends, you want to reach out to those around you in gratitude.
