@@ -4,6 +4,8 @@
 
 [[ReadItLater\|ReadItLater]] [[Article\|Article]]
 
+This stuff really is extraordinary and out there!
+
 # [About – Kassel Jaeger](https://kasseljaeger.com/about/)
 
 [Press Kit](https://kasseljaeger.com/storage/2021/10/Press-Kit-2021.zip)
