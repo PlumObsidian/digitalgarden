@@ -6,14 +6,14 @@
 
 You have 4 harm outcomes:
 
-4. Take a day off work
-3. Call a Doctor
-2. Call an Ambulance 
-1. Call an Undertaker
+ 1.  Call an Undertaker 
+ 2.  Call an Ambulance 
+ 3.  Call a Doctor 
+ 4.  Call in sick and have a day off work.
 
 Moving the most "likely" of these outcomes is also weighted.
 
-So for example, moving the likely outcome of "having a day off work" to "highly likely" has less of an impact that increasing the likely outcome of "Call the undertaker".
+So for example, moving the likely outcome of "Call in sick" to  "most likely harm outcome" has less of an impact that increasing the likely outcome of "Call the undertaker".
 
 Now Imagine this weighting as a piece of fruit:
 
