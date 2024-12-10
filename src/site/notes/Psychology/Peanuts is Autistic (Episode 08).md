@@ -7,11 +7,8 @@
 
 # [Peanuts is Autistic (Episode 08)](https://www.autisticculturepodcast.com/p/episode-8-peanuts-is-autistic)
 
-[
 
-![Listen to Autistic podcast hosts discuss: Peanuts is Autistic Autism Podcast | Was Charles Schulz on the Autism Spectrum?  Listen in to learn about the Autistic characters in his Autistic cartoon.  From Linus to Lucy, find out how the characters in Charlie Brown Christmas Tree, and the comic strip, exemplify Autistic traits.  If you're a fan you might just start wondering: "Am I autistic too?"](https://substackcdn.com/image/fetch/w_1456,c_limit,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F75f707c0-1427-409f-add3-91a4854f1148.heic "Listen to Autistic podcast hosts discuss: Peanuts is Autistic Autism Podcast | Was Charles Schulz on the Autism Spectrum?  Listen in to learn about the Autistic characters in his Autistic cartoon.  From Linus to Lucy, find out how the characters in Charlie Brown Christmas Tree, and the comic strip, exemplify Autistic traits.  If you're a fan you might just start wondering: "Am I autistic too?"")
-
-](https://substackcdn.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F75f707c0-1427-409f-add3-91a4854f1148.heic)
+[Podcast](https://substackcdn.com/image/fetch/f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F75f707c0-1427-409f-add3-91a4854f1148.heic)
 
 M: Our relationships are based on the three F's: Friends, family, and fictional characters.
 
@@ -57,6 +54,3 @@ Angela’s social media: [Twitter](https://twitter.com/alauria?s=20&t=YwIVZQojo
 
 TACP’s Autism-affirming TeePublic [merch shop](https://www.teepublic.com/stores/the-autistic-culture-podcast?ref_id=32993)
 
-![autism affirming merch hoodies t-shirts and more](/img/user/ReadItLater Inbox/assets/autism affirming merch hoodies t-shirts and more.png)![autism affirming merch hoodies t-shirts and more](/img/user/ReadItLater Inbox/assets/autism affirming merch hoodies t-shirts and more-1.png)![autism affirming merch hoodies t-shirts and more](/img/user/ReadItLater Inbox/assets/autism affirming merch hoodies t-shirts and more-2.png)
-
-Find these designs and more in our merch shop! (link above)
