@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/web-design-notes/git-hub-bepgallerydeluxe-fast-hugo-gallery-thememodule-suitable-for-lots-of-images/"}
+{"dg-publish":true,"permalink":"/web-design-notes/git-hub-bepgallerydeluxe-fast-hugo-gallery-thememodule-suitable-for-lots-of-images/","tags":["hugo","websites","design"]}
 ---
 
 [[ReadItLater\|ReadItLater]] [[Article\|Article]]
