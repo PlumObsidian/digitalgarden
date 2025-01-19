@@ -4,7 +4,7 @@
 
 [[ReadItLater\|ReadItLater]] [[Article\|Article]]
 
-[[Linux Cheat Sheets/Hugo images\|Hugo images]]  [Hugo](https://gohugo.io/)
+[[Software/Hugo images\|Hugo images]]  [Hugo](https://gohugo.io/)
 # [GitHub - bep/gallerydeluxe: Fast Hugo gallery theme/module suitable for lots of images.](https://github.com/bep/gallerydeluxe?tab=readme-ov-file)
 
 > **Note 1:** See this [Gallery Deluxe Starter](https://github.com/bep/gallerydeluxe_starter) for a fast route to get this up and running.
