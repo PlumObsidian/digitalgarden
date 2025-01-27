@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/what-s-on-the-jukebox/ros-serey-sothea-upset-because-of-love/"}
+{"dg-publish":true,"permalink":"/what-s-on-the-jukebox/ros-serey-sothea-upset-because-of-love/","tags":["music","cambodia"]}
 ---
 
 

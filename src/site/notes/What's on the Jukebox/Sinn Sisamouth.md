@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/what-s-on-the-jukebox/sinn-sisamouth/"}
+{"dg-publish":true,"permalink":"/what-s-on-the-jukebox/sinn-sisamouth/","tags":["cambodia","music"]}
 ---
 
 
