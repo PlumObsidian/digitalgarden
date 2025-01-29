@@ -47,3 +47,5 @@ Alternatively, you can use a third-party service like Getform to create a more a
 3. **Test the Form**:
     
     - After setting up the form, test it by submitting a sample entry to ensure everything works as expected.
+
+Getform tutorial [here](https://blog.getform.io/how-to-add-a-contact-form-in-hexo/)
