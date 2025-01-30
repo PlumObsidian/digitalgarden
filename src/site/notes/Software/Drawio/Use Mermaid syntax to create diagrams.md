@@ -1,0 +1,171 @@
+---
+{"dg-publish":true,"permalink":"/software/drawio/use-mermaid-syntax-to-create-diagrams/","tags":["drawio","diagrams","Mermaid","tools","processes","productivity"]}
+---
+
+[[ReadItLater\|ReadItLater]] [[Article\|Article]]
+
+# [Use Mermaid syntax to create diagrams](https://www.drawio.com/blog/mermaid-diagrams)
+
+## Share:
+
+Mermaid is a syntax similar to Markdown where you can use text to describe and automatically generate diagrams. With Mermaid’s Markdown-inspired syntax, you can generate flow charts, UML diagrams, pie charts, Gantt charts, and more.  
+![A simple sequence diagram inserted using the Mermaid syntax](https://www.drawio.com/assets/img/blog/mermaid-sequence-example.png)
+
+Many developers prefer to describe their data structures and processes using text, avoiding the need to context switch. After documenting them in the Markdown-based text description, you can then insert this into the draw.io editor to generate a diagram and lay it out automatically.
+
+## Insert a Mermaid diagram
+
+1.  Click *Arrange > Insert > Advanced > Mermaid*. Alternatively, click the `+` icon in the toolbar, then select *Advanced > Mermaid*.  
+    ![Click Arrange > Insert > Advanced > Mermaid to create a diagram from Mermaid Markdown-inspired code](https://www.drawio.com/assets/img/blog/insert-mermaid-menu.png)
+2.  Paste your text into the text box, then click *Insert*.  
+    ![Paste the text in Mermaid syntax, then click Insert](https://www.drawio.com/assets/img/blog/mermaid-flowchart-example-code.png)
+
+Your diagram will be automatically created and formatted from your text, and inserted as a single shape on the drawing canvas.
+
+### Edit the Mermaid code in draw.io
+
+To see the Mermaid code for any of the diagrams inserted in this way, select the shape, then press `Enter`. You can make changes to the code here, then click *Apply* to update the diagram on the drawing canvas.
+
+## Mermaid syntax
+
+Diagrams are created by linking text labels using arrow connectors. You can choose different shapes, add labels to connectors, and style connectors and shapes.
+
+[Mermaid documentation for the complete syntax and styling options](https://mermaid.js.org/intro/syntax-reference.html)
+
+| **Shape styles** | `[rectangle]` | `(rounded rectangle)` |
+| --- | --- | --- |
+|   | `((circle))` | `{diamond}` |
+| **Connector styles** | arrow: `A-->B` | dotted: `A-.-->B` |
+|   | no arrow: `A---B` | with a label: `A-->\|label\|B` |
+| **Diagram types** | `graph` | `pie` |
+|   | `gantt` | `sequenceDiagram` |
+|   | `stateDiagram` | `classDiagram` |
+|   | `gitgraph` | `flowchart` |
+|   | `mindmap` | `requirementDiagram` |
+|   | `erDiagram` | `journey` |
+|   | `C4Context` |   |
+| **Gantt** | task state: `done`, `active`, `crit`, `after` | `section` |
+| **Pie** | `title` |   |
+| **Gitgraph** | actions: `commit`, `branch`, `checkout`, `merge` |   |
+| **UML** | lifelines:`participant` | `activate` |
+|   | containers: `loop`, `alt`, `opt` | `class` |
+| **Information** | comment: `%%` | `note` |
+
+Look at the examples below to see how the Mermaid syntax is used to define a variety of diagrams in text. Open these example Mermaid diagrams in draw.io.
+
+### Flowchart
+
+**Note:** Labels can include new lines for a cleaner layout.
+
+```
+graph TD
+   A(Coffee machine <br>not working) --> B{Machine has power?}
+   B -->|No| H(Plug in and turn on)
+   B -->|Yes| C{Out of beans or water?} -->|Yes| G(Refill beans and water)
+   C -->|No| D{Filter warning?} -->|Yes| I(Replace or clean filter)
+   D -->|No| F(Send for repair)
+```
+
+![A flow chart example from Mermaid syntax](https://www.drawio.com/assets/img/blog/mermaid-flowchart-example.png)
+
+[*Open this example in our online diagram viewer*](https://app.diagrams.net/?lightbox=1&highlight=0000ff&edit=_blank&layers=1&nav=1&title=#Uhttps%3A%2F%2Fraw.githubusercontent.com%2Fjgraph%2Fdrawio-diagrams%2Fmaster%2Fblog%2Fmermaid-examples.drawio)
+
+### Gantt chart
+
+Gantt charts are beloved by many project managers as they can keep track of the tasks, dependencies and timetable of their projects. While it can be fiddly to create a Gantt chart in draw.io, generating one is much easier when it’s from a text description.
+
+```
+gantt
+ title Example Gantt diagram
+    dateFormat  YYYY-MM-DD
+    section Team 1
+    Research & requirements :done, a1, 2020-03-08, 2020-04-10
+    Review & documentation : after a1, 20d
+    section Team 2
+    Implementation      :crit, active, 2020-03-25  , 20d
+    Testing      :crit, 20d
+```
+
+![An example Gantt chart inserted from Mermaid code](https://www.drawio.com/assets/img/blog/mermaid-gantt-example.png)
+
+[*Open this example in our online diagram viewer*](https://app.diagrams.net/?lightbox=1&highlight=0000ff&edit=_blank&layers=1&nav=1&page=1&title=#Uhttps%3A%2F%2Fraw.githubusercontent.com%2Fjgraph%2Fdrawio-diagrams%2Fmaster%2Fblog%2Fmermaid-examples.drawio)
+
+### UML class diagram
+
+The following is how the simple class diagram template from draw.io would look in Mermaid syntax.
+
+```
+classDiagram
+   Person <|-- Student
+   Person <|-- Professor
+   Person : +String name
+   Person : +String phoneNumber
+   Person : +String emailAddress
+   Person: +purchaseParkingPass()
+   Address "1" <-- "0..1" Person:lives at
+   class Student{
+      +int studentNumber
+      +int averageMark
+      +isEligibleToEnrol()
+      +getSeminarsTaken()
+    }
+    class Professor{
+      +int salary
+    }
+    class Address{
+      +String street
+      +String city
+      +String state
+      +int postalCode
+      +String country
+      -validate()
+      +outputAsLabel()  
+    }			
+```
+
+![The simple class example template from draw.io in Mermaid syntax](https://www.drawio.com/assets/img/blog/mermaid-class-example.png)
+
+[*Open this example in our online diagram viewer*](https://app.diagrams.net/?lightbox=1&highlight=0000ff&edit=_blank&layers=1&nav=1&page=2&title=#Uhttps%3A%2F%2Fraw.githubusercontent.com%2Fjgraph%2Fdrawio-diagrams%2Fmaster%2Fblog%2Fmermaid-examples.drawio)
+
+### UML sequence diagram
+
+UML sequence diagrams are used to show the steps taken and the actors involved in completing a process. These diagrams are heavily used in software development.
+
+```
+sequenceDiagram
+    autonumber
+    Student->>Admin: Can I enrol this semester?
+    loop enrolmentCheck
+        Admin->>Admin: Check previous results
+    end
+    Note right of Admin: Exam results may <br> be delayed
+    Admin-->>Student: Enrolment success
+    Admin->>Professor: Assign student to tutor
+    Professor-->>Admin: Student is assigned
+```
+
+![A simple sequence diagram inserted using the Mermaid syntax](https://www.drawio.com/assets/img/blog/mermaid-sequence-example.png)
+
+[*Open this example in our online diagram viewer*](https://app.diagrams.net/?lightbox=1&highlight=0000ff&edit=_blank&layers=1&nav=1&page=3&title=#Uhttps%3A%2F%2Fraw.githubusercontent.com%2Fjgraph%2Fdrawio-diagrams%2Fmaster%2Fblog%2Fmermaid-examples.drawio)
+
+### Pie chart
+
+While you can build a pie chart manually draw.io, using the Mermaid syntax makes it very easy to get exactly the correct distribution of pie slices. In the Mermaid code, you can either use percentage values, or the actual value of each group. In the example below, you can see which days are the busiest for commits to the draw.io main repository on GitHub.
+
+```
+pie title Commits to mxgraph2 on GitHub
+	"Sunday" : 4
+	"Monday" : 5
+	"Tuesday" : 7
+  "Wednesday" : 3
+```
+
+![Commits to the mxgraph2 GitHub repository per day, inserted into draw.io using Mermaid syntax](https://www.drawio.com/assets/img/blog/mermaid-pie-example.png)
+
+[*Open this example in our online diagram viewer*](https://app.diagrams.net/?lightbox=1&highlight=0000ff&edit=_blank&layers=1&nav=1&page=4&title=#Uhttps%3A%2F%2Fraw.githubusercontent.com%2Fjgraph%2Fdrawio-diagrams%2Fmaster%2Fblog%2Fmermaid-examples.drawio)
+
+Mermaid’s syntax is similar to Graphviz DOT and PlantUML, both of which can be inserted into draw.io to create diagrams from a text description.
+
+[See all of the elements you can insert into your diagram](https://www.drawio.com/doc/faq/arrange-insert-menu.html)
+
+**Tip:** We’ve recently [updated draw.io to support the new Mermaid ELK layout option](https://www.drawio.com/blog/mermaid-elk-layout.html) that can create neater more compact versions of large and complex flowcharts.
