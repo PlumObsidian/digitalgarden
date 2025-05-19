@@ -8,7 +8,7 @@
 
 11-05-2025
 
-[![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)](app://obsidian.md/sounds/play/m002bsdk)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)](app://obsidian.md/sounds/play/m002bsdk)
 
 
 ## Slow Sunday: Mindful meditations… with Zakia
@@ -22,14 +22,9 @@ It’s Slow Sunday on 6 Music - with shows across the day dialling down the temp
 
 Plus, musician and sound artist Hinako Omori shares reflections on healing frequencies, forest bathing, and sonic chakras and takes us on a special meditative river walk through Japan—from a waterfall all the way down to the sea…
 
-
-## Last on
-
-![](ReadItLater%20Inbox/assets/service-1e797db53a.svg)
-
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Matthew Halsall
     
@@ -38,7 +33,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Salute to the Sun.*
     -   Gondwana Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Don Robertson
     
@@ -47,7 +42,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Dawn.*
     -   Limelight.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rebecca Vasmant
     
@@ -56,7 +51,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Who We Are, Becoming.*
     -   Women in Jazz x New Soil.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Duval Timothy
     
@@ -65,7 +60,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *wishful thinking.*
     -   Carrying Colour Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Al Doum & The Faryds
     
@@ -73,7 +68,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     
     -   *Spirit Rejoin.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alain Bellaïche
     
@@ -82,7 +77,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Sea Fluorescent.*
     -   Souffle Continu Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Linda Lewis
     
@@ -91,7 +86,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Lark.*
     -   Reprise.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Carlos Nino & Miguel Atwood Ferguson
     
@@ -100,7 +95,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Chicago Waves.*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Qasim Naqvi
     
@@ -109,7 +104,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Endling.*
     -   Erased Tapes.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tezeta
     
@@ -118,7 +113,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *SEVENTH PLACE.*
     -   Bloom Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### aja monet
     
@@ -127,7 +122,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *When the Poems Do What They Do.*
     -   drink sum wtr.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Simon Mavin
     
@@ -136,7 +131,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Some Days.*
     -   Wondercore Island.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Duke Ellington with Charlie Mingus & Max Roach
     
@@ -145,7 +140,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Money Jungle.*
     -   United Artists.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Shabaka Hutchings
     
@@ -154,7 +149,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Perceive its Beauty, Acknowledge its Grace.*
     -   Impulse!.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tony Scott
     
@@ -163,7 +158,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Music for Zen Meditation.*
     -   Verve.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alabaster dePlume
     
@@ -172,7 +167,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *A Blade Because a Blade Is Whole.*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Repetition Repetition
     
@@ -181,7 +176,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Fit for Consequences: Original Recordings, 1984–1987.*
     -   RVNG Intl..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Iasos
     
@@ -189,7 +184,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     
     -   *Inter-Dimensional Music.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Massive Attack
     
@@ -198,7 +193,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Protection.*
     -   Wild Bunch Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ariel Kalma
     
@@ -206,7 +201,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     
     -   *Magical 70s.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rebekka Karijord
     
@@ -215,7 +210,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *The Bell Tower.*
     -   Bella Union.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sally Anne Morgan
     
@@ -224,7 +219,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Thread.*
     -   Thrill Jockey Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hinako Omori
     
@@ -233,7 +228,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *a journey….*
     -   Houndstooth.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Clare Uchima & Hinako Omori
     
@@ -242,13 +237,13 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   *Lokah Samastah Sukhino Bhavantu.*
     -   Hibiki.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hinako Omori
     
     Studies On A River
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Herbert & Momoko
     
