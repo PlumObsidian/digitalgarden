@@ -22,7 +22,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
 
 ## Music Played
 
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alan Stivell
     
@@ -31,7 +31,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Reflets.*
     -   Fontana.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rebecca Vasmant
     
@@ -40,7 +40,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Who We Are, Becoming.*
     -   Women in Jazz / New Soil.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### SAULT
     
@@ -49,7 +49,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *10.*
     -   Forever Loving Originals.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Resavoir & Matt Gold
     
@@ -58,7 +58,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Horizon.*
     -   International Anthem.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Leonardo V. Boccia
     
@@ -67,7 +67,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Homenagem.*
     -   Lugar Alto.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Brahja
     
@@ -76,7 +76,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *BRAHJA.*
     -   RR Gems.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Richie Havens
     
@@ -85,7 +85,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *The Great Blind Degree.*
     -   Stormy Forest.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Violeta Parra
     
@@ -94,7 +94,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Las Últimas Composiciones.*
     -   RCA Victor.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Adrian Quesada
     
@@ -103,7 +103,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Boleros Psicodélicos II.*
     -   ATO.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jeremiah Chiu & Marta Sofia Honer
     
@@ -112,7 +112,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Different Rooms.*
     -   International Anthem.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Culross Close
     
@@ -121,7 +121,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Learning To Let Go.*
     -   K15.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rebecca Vasmant
     
@@ -130,7 +130,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Who We Are, Becoming.*
     -   Women in Jazz / New Soil.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Stan Tracey Quartet
     
@@ -138,7 +138,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     
     -   *Under Milk Wood.*
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Naïssam Jalal
     
@@ -147,7 +147,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Souffles.*
     -   Autre Distribution.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Los Jaivas
     
@@ -156,7 +156,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Alturas de Macchu Picchu.*
     -   The state51 Conspiracy.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Celestial
     
@@ -165,7 +165,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *I Can Hear The Grass Grow.*
     -   ECSTATIC.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bill Fay
     
@@ -174,7 +174,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Tomorrow Tomorrow and Tomorrow,.*
     -   Dead Oceans.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Men I Trust
     
@@ -182,7 +182,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     
     -   *Equus Caballus.*
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Raimund Wong & Suren Seneviratne
     
@@ -191,7 +191,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *A Record of Living Beings.*
     -   Kit Records.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### anaiis
     
@@ -200,7 +200,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *To Zion.*
     -   5dB.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Air
     
@@ -209,7 +209,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Blue Moon Safari (Vegyn Version).*
     -   Parlophone France.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### MA.MOYO
     
@@ -218,7 +218,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Viva Voce Vol. 1.*
     -   Accidental Meetings.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Beyn-na-beyn
     
@@ -227,7 +227,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Cement Body Dreams Concussed.*
     -   First Terrace.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rebecca Vasmant
     
@@ -236,9 +236,9 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Who We Are, Becoming.*
     -   Women in Jazz / New Soil.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Angel Bat Dawid & Naima Nefertari
     
@@ -247,7 +247,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Journey to Nabta Playa.*
     -   Spiritmuse Records.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kirk Barley
     
@@ -256,7 +256,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *Lux.*
     -   Odda Recordings.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kara‐Lis Coverdale
     
@@ -265,7 +265,7 @@ Plus, we hear from Glasgow-based DJ and producer Rebecca Vasmant, following the 
     -   *From Where You Came.*
     -   Smalltown Supersound.
     
--    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jimetta Rose & The Voices of Creation
     
