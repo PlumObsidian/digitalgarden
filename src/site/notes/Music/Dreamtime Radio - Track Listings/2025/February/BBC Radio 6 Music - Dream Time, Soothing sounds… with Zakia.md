@@ -25,7 +25,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bill Evans and Herbie Mann
     
@@ -34,7 +34,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Nirvana.*
     -   Atlantic.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jacken Elswyth and CA Conrad
     
@@ -43,7 +43,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *A Cast of Flowers.*
     -   Lanterne Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Laura Nyro
     
@@ -52,7 +52,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Nested.*
     -   Columbia.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Crosby, Stills, Nash & Young
     
@@ -61,7 +61,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Déjà Vu.*
     -   Atlantic.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Vernon Spring
     
@@ -70,7 +70,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Norton.*
     -   RVNG Intl..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Theo Croker
     
@@ -79,7 +79,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *BY THE WAY.*
     -   Sony.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jarrard Anthony
     
@@ -88,7 +88,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *The Dream.*
     -   Stonegroove Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Green-House
     
@@ -97,7 +97,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *A Host for All Kinds of Life.*
     -   Leaving Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Spirit of Sundaze Ensemble
     
@@ -106,7 +106,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *I.*
     -   Secretsundaze Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Samba Touré
     
@@ -115,7 +115,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Baarakelaw.*
     -   Glitterbeat Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Los Pirañas
     
@@ -124,7 +124,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Una Oportunidad más de triunfar en la vida.*
     -   Glitterbeat Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jazzhole Collective
     
@@ -133,7 +133,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Asiko Tito (A Jazzhole Compilation).*
     -   Jazzhole Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Theo Croker
     
@@ -142,7 +142,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Amen Waters.*
     -   SPN Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alpataco
     
@@ -151,7 +151,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Alpataco.*
     -   Movieplay.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tala Vala
     
@@ -160,7 +160,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Fields Fictions LP.*
     -   Archaeon Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alabaster dePlume
     
@@ -169,7 +169,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *A Blade because a Blade is Whole.*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Michael Atherton
     
@@ -178,7 +178,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Windshift.*
     -   Infinite Expanse.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Huw Marc Bennett
     
@@ -187,7 +187,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Days Like Now.*
     -   Albert's Favourites.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hugo Maillard
     
@@ -195,7 +195,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     
     -   *Tas de foin.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Chihei Hatakeyama
     
@@ -204,7 +204,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Lucid Dreams.*
     -   First Terrace Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gareth Quinn Redmond
     
@@ -213,7 +213,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Ar Ais Arís.*
     -   WRWTFWW Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Svitlana Nianio & Tom James Scott
     
@@ -221,7 +221,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     
     -   *Eye of the Sea.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### David Edren and H. Takahashi
     
@@ -230,7 +230,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Flow.*
     -   Aguirre.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Aisha Vaughan
     
@@ -239,7 +239,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *The Gate.*
     -   Leaving Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Blue Divers
     
@@ -248,7 +248,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Blue Divers.*
     -   bedroom suck records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bedouin Ascent
     
@@ -257,7 +257,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Science, Art And Ritual (30th Anniversary Edition).*
     -   Lapsus Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Suso Sáiz
     
@@ -266,7 +266,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Distorted Clamor.*
     -   Music from Memory.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Windy & Carl
     
@@ -275,7 +275,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Allegiance and Conviction.*
     -   kranky.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Toshimi Mikami
     
@@ -284,7 +284,7 @@ Plus we take a voyage down the Portal with American jazz trumpeter, and dreamer,
     -   *Quimai: Organic Music Vol 1 (reissue).*
     -   Night Rhythms.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Charlene Knight
     

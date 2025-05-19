@@ -25,7 +25,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Boys of the Lough
     
@@ -34,7 +34,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Honest Jon's Records.*
     -   Never The Same (Leave-Taking From The British Folk Revival 1970-1977).
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Merope
     
@@ -43,7 +43,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *stroom.*
     -   V​ė​jula.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Merope
     
@@ -52,7 +52,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *V​ė​jula.*
     -   stroom.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Brìghde Chaimbeul
     
@@ -61,7 +61,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *The Reeling.*
     -   River Lea.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alasdair Roberts
     
@@ -70,7 +70,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Grief in the Kitchen and Mirth in the Hall.*
     -   Drag City.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Don & Françoiz
     
@@ -79,7 +79,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Cover Songs In Inferno.*
     -   Prohibited Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gábor Szabó
     
@@ -88,7 +88,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Dreams.*
     -   Skye.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kobza
     
@@ -97,7 +97,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Even the Forest Hums: Ukrainian Sonic Archives 1971​-​1996.*
     -   Light In The Attic Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Aisha Vaughan
     
@@ -106,7 +106,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *The Gate.*
     -   LEAVING RECORDS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Clannad
     
@@ -115,7 +115,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Magical Ring.*
     -   Tara.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Amps for Christ
     
@@ -124,7 +124,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Songs From Mt. Ion.*
     -   Total Annihilation.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Fates
     
@@ -133,7 +133,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Furia.*
     -   Taboo Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Fates
     
@@ -142,7 +142,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Furia.*
     -   Taboo Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Don Leisure
     
@@ -151,7 +151,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Cynnau Tân.*
     -   Sain.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Les Frères Mégri & Jacques Hendrix
     
@@ -160,7 +160,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Mahmoud, Hassan Et Younès.*
     -   Sudiphone.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lori Goldston
     
@@ -169,7 +169,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Convolutions.*
     -   Nyahh Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Oruã
     
@@ -178,7 +178,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *PASSE.*
     -   Transfusão Noise Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Brìghde Chaimbeul
     
@@ -187,7 +187,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Carry Them with Us.*
     -   Tak:til.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Anna von Hausswolff
     
@@ -196,13 +196,13 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *All Thoughts Fly.*
     -   Southern Lord.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Aloisius
     
     (dont) let me go
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Fairport Convention
     
@@ -211,7 +211,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Flowers of the Forest.*
     -   Island.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ichiko Aoba
     
@@ -220,7 +220,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Luminescent Creatures.*
     -   hermine.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lamin Fofana
     
@@ -229,7 +229,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Chromesthesia.*
     -   Chromesthesia: The Colour of Sound Vol. 1.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Perila
     
@@ -238,7 +238,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Smalltown Supersound.*
     -   Intrinsic Rhythm.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ben Lukas Boysen
     
@@ -247,7 +247,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Alta Ripa.*
     -   Erased Tapes.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Aki Onda
     
@@ -256,13 +256,13 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *99 Cent Dreams.*
     -   Dinzu Artefacts.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Calming River
     
     Plain Of Esdraelon
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rachel Newton
     
@@ -271,7 +271,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Sealladh.*
     -   Hudson Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lewis Crellin
     
@@ -279,7 +279,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     
     -   *Skeealyn Lewis Crellin.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Zaumne
     
@@ -288,7 +288,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Only Good Dreams For Me.*
     -   Warm Winters Ltd..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Robert Farrugia
     
@@ -297,7 +297,7 @@ Plus the Scottish smallpiper Brìghde Chaimbeul selects a song that soundtracks 
     -   *Ballottra.*
     -   Phantom Limb.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mermaid Chunky
     

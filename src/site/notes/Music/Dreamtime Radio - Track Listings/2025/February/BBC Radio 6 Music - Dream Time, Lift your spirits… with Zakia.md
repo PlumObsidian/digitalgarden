@@ -25,7 +25,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Keur Moussa
     
@@ -34,7 +34,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Keur Moussa (Sacred Chant & African Rhythms From Senegal).*
     -   Sounds True.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kyle Shepherd Trio
     
@@ -43,7 +43,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *A Dance More Sweetly Played.*
     -   Matsuli Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gregory Uhlmann, Josh Johnson, Sam Wilkes
     
@@ -52,7 +52,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Uhlmann Johnson Wilkes.*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Thomas Dolby
     
@@ -61,7 +61,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *The Flat Earth.*
     -   Parlophone Odeon Series.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Intermood
     
@@ -70,7 +70,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Casuarina.*
     -   Stone Pixels.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Azumah
     
@@ -79,7 +79,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Long Time Ago.*
     -   Nyami Nyami.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Abel Selaocoe
     
@@ -88,7 +88,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Hymns of Bantu.*
     -   Parlophone / Warner Classics.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### JACK Quartet
     
@@ -97,7 +97,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *The Wind in High Places.*
     -   Cold Blue Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rhythm & Bliss
     
@@ -106,7 +106,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Paul Hillery presents Folk Funk & Trippy Troubadours Volume 3.*
     -   BBE Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rebecca Vasmant
     
@@ -115,7 +115,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Who We Are.*
     -   New Soil.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ocean Moon
     
@@ -124,7 +124,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Ways To The Deep Meadow.*
     -   Music From Memory.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Beverly Glenn‐Copeland
     
@@ -133,7 +133,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Keyboard Fantasies.*
     -   Transgressive.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Malcolm Jiyane Tree-O
     
@@ -142,7 +142,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *TRUE STORY.*
     -   New Soil.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Abel Selaocoe
     
@@ -151,7 +151,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Hymns of Bantu.*
     -   Parlophone / Warner Classics.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alemu Aga
     
@@ -160,7 +160,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *The Begenna of Elders.*
     -   Laika Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joe Chambers, Kevin Diehl, Chad Taylor
     
@@ -169,7 +169,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Onilu.*
     -   eremite records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Areski Belkacem
     
@@ -178,7 +178,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Un Beau Matin.*
     -   Saravah.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alabaster dePlume
     
@@ -187,7 +187,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *A Blade Because A Blade Is Whole.*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alex Zethson + Johan Jutterström
     
@@ -196,7 +196,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Live at Liljevalchs April 14, 2023.*
     -   thanatosis.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ariel Kalma & Asa Tone
     
@@ -205,7 +205,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Ariel Kalma & Asa Tone - ◯.*
     -   Good Morning Tapes.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Henrik Lindstrand
     
@@ -214,7 +214,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Space Between.*
     -   Lime Tree Beach Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tim Hecker
     
@@ -223,7 +223,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Shards.*
     -   kranky.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### KO:MI
     
@@ -232,7 +232,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Belonging in Nature.*
     -   Minna Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Calming River
     
@@ -241,7 +241,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Havelock.*
     -   Calming River.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Calming River & Sopraterra
     
@@ -250,7 +250,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Seven Dances To Embrace The Hollow.*
     -   Präsens Editionen.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lawrence English
     
@@ -259,7 +259,7 @@ Elsewhere Zakia shares more sweet sounds from South Africa and beyond. There are
     -   *Even The Horizon Knows Its Bounds.*
     -   Room40.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Miriam Makeba
     

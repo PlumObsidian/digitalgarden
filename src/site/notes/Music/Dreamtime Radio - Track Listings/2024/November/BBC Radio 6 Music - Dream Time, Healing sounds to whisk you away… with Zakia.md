@@ -25,7 +25,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lamine Cissokho & Manish Pingle
     
@@ -34,7 +34,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *New Continents.*
     -   sing a song fighter.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tarta Relena
     
@@ -43,7 +43,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *És pregunta.*
     -   Latency.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Soledad Bravo
     
@@ -52,7 +52,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Soledad Bravo Canta.*
     -   Discos America.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Évé
     
@@ -61,7 +61,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Canto Aberto.*
     -   Komos.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mariscos
     
@@ -70,7 +70,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *In​-​Correcto 179: Garotinha.*
     -   In-Correcto.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ganavya
     
@@ -79,7 +79,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Daughter of a Temple.*
     -   LEITER.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ananda Shankar
     
@@ -88,7 +88,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Ananda Shankar and His Music.*
     -   Mr Bongo.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tashi Wada
     
@@ -97,7 +97,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *What Is Not Strange?.*
     -   RVNG Intl.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lloyd Miller
     
@@ -106,7 +106,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Jazz At The University Of Utah.*
     -   East-West Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Masayoshi Fujita
     
@@ -115,7 +115,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Migratory.*
     -   Erased Tapes.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tiny Leaves
     
@@ -123,7 +123,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     
     -   *Anthropocene.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### José González
     
@@ -132,7 +132,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Local Valley.*
     -   City Slang.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ganavya
     
@@ -141,7 +141,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *like the sky I've been too quiet.*
     -   Native Rebel.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alice Coltrane
     
@@ -150,7 +150,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Journey In Satchidananda.*
     -   Impulse!.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tinariwen
     
@@ -159,7 +159,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Idrache (Traces Of The Past).*
     -   Wedge.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### T.K. Ramamoorthy
     
@@ -168,7 +168,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Fabulous Notes And Beats Of The Indian Carnatic-Jazz.*
     -   His Master's Voice.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Yama Warashi
     
@@ -177,7 +177,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *At My Mother’s Piano.*
     -   PRAH Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### KOKOROKO
     
@@ -186,7 +186,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Get The Message.*
     -   Brownswood Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Fools
     
@@ -195,7 +195,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Fools' Harp Vol. 1.*
     -   Music From Memory.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### musclecars
     
@@ -204,7 +204,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Double Honey Pack.*
     -   BBE.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Monito del Monte
     
@@ -213,7 +213,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Laguna Pudú LP.*
     -   Kerosene.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Aisha Vaughan
     
@@ -222,7 +222,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *The Gate.*
     -   LEAVING RECORDS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mazy Day
     
@@ -231,7 +231,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Go 'Swish.*
     -   Kit Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Andrew Chalk
     
@@ -239,7 +239,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     
     -   *THE END TIMES.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### GAISTER
     
@@ -248,7 +248,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *GAISTER.*
     -   AD 93.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Chihei Hatakeyama & Shun Ishiwaka
     
@@ -257,7 +257,7 @@ Plus the cosmic vocalist and multi-instrumentalist Ganavya drops into Dream Time
     -   *Magnificent Little Dudes vol. 1.*
     -   White Paddy Mountain.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Roy McComas
     

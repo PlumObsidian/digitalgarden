@@ -25,7 +25,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Odetta
     
@@ -34,7 +34,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Odetta in Japan.*
     -   RCA Victor.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Phi‐Psonics
     
@@ -43,7 +43,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Expanding to One.*
     -   Gondwana Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Peter Walker
     
@@ -52,7 +52,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Rainy Day Raga.*
     -   Vanguard.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mary Lou Williams
     
@@ -61,7 +61,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Mary Lou's Mass.*
     -   Mary Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Florence Adooni
     
@@ -70,7 +70,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *A.O.E.I.U. (An Ordinary Exercise In Unity).*
     -   Philophon Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bobbie Gentry
     
@@ -79,7 +79,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Touch 'Em with Love.*
     -   Capitol.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Everything Is Recorded
     
@@ -88,7 +88,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Temporary.*
     -   XL.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Yama Warashi
     
@@ -97,7 +97,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *At My Mother’s Piano.*
     -   PRAH Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Teeth Agency
     
@@ -106,7 +106,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Cherry Blossom Child.*
     -   Stones Throw.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jediah Khivali & Girls
     
@@ -115,7 +115,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Kenyan Songs and Strings.*
     -   SWP Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Nyron Higor
     
@@ -124,7 +124,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Nyron Higor.*
     -   Far Out Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### X-Cetra
     
@@ -133,7 +133,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Summer 2000 \[Y2K 25th Anniversary Edition\].*
     -   Numero Group.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Maria Somerville
     
@@ -142,7 +142,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Luster.*
     -   4AD.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sam Prekop
     
@@ -151,7 +151,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Sam Prekop.*
     -   Thrill Jockey Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Stelvio Cipriani
     
@@ -160,7 +160,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Femina ridens.*
     -   Four Flies Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sun Ra
     
@@ -168,7 +168,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     
     -   *Sleeping Beauty (Expanded).*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Miyagi Michio, Yoshida Kyoko, and Miyagi Kiyoko
     
@@ -177,7 +177,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Excavated Shellac: An Alternate History of the World's Music.*
     -   Dust-to-Digital.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Midori Takada
     
@@ -186,9 +186,9 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Through the Looking Glass.*
     -   RCA Red Seal.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Troth & Jon Collin
     
@@ -197,7 +197,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Devotion Objects.*
     -   A Colourful Storm.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alex Jasprizza
     
@@ -205,7 +205,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     
     -   *Waterways.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### milesbluue
     
@@ -213,7 +213,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     
     -   *Music for Underwater.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sadie Powers
     
@@ -222,7 +222,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Souvenir.*
     -   Room40.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Space Blanket
     
@@ -231,7 +231,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Sonic Balms For Soothing Souls.*
     -   Byrd Out.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Liz Overs
     
@@ -239,7 +239,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     
     -   *Nightjar.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Evolution Of Beauty
     
@@ -248,7 +248,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Nature Purgatory Transcendence.*
     -   Evolution of Beauty.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mother Gong
     
@@ -257,7 +257,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Fairy Tales.*
     -   Charly Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Arborra
     
@@ -266,7 +266,7 @@ Plus, we hear from the Japanese visual artist and musician Yoshino Shigihara - w
     -   *Mind Over Matter.*
     -   7K!.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Fruit
     

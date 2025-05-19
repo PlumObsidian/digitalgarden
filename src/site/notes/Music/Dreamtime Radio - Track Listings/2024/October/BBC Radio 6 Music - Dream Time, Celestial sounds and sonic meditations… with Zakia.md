@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Celestial sounds and sonic meditations… with Zakia](https://www.bbc.co.uk/programmes/m0023w4x)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 20 Oct 2024
 ## Celestial sounds and sonic meditations… with Zakia
@@ -25,7 +25,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kevin McCormick & David Horridge
     
@@ -34,7 +34,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Light Patterns.*
     -   Smiling C.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Awen Ensemble
     
@@ -43,13 +43,13 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Cadair Idris.*
     -   New Soil.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Silvio Rodríguez
     
     Sueno con Serpientes
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Resavoir
     
@@ -58,7 +58,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Life Before.*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Anaiis, Grupo Cosmo & Luedji Luna
     
@@ -67,7 +67,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *anaiis & Grupo Cosmo.*
     -   5dB Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Yusef Lateef
     
@@ -76,13 +76,13 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Eastern Sounds.*
     -   Moodsville.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Nicole Mitchell & Ballake Sissoko
     
     Bamako Chicago
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Arianna Cassellas y Kaue
     
@@ -91,7 +91,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Suenan las Campanas.*
     -   Lovers & Lollypops.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Seodophy
     
@@ -99,7 +99,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     
     -   *Ablutio.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Laura Misch
     
@@ -108,9 +108,9 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Sample the Earth.*
     -   One Little Independent Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Laura Groves
     
@@ -119,7 +119,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Radio Red.*
     -   Bella Union.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bill Nelson
     
@@ -128,7 +128,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *The Love That Whirls (Diary Of A Thinking Heart).*
     -   Enigma Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Modern Cosmology, Laetitia Sadier and Mombojó
     
@@ -137,7 +137,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *What Will You Grow Now?.*
     -   Duophonic Super 45s.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Carmen Villain
     
@@ -146,9 +146,9 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Only Love From Now On.*
     -   Smalltown Supersound.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jone Takamäki Trio
     
@@ -157,7 +157,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Universal Mind.*
     -   Arc Light Editions.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Turn On the Sunlight
     
@@ -166,7 +166,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Ocean Garden.*
     -   rings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Harold Budd & Cocteau Twins
     
@@ -175,7 +175,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *The Moon and the Melodies.*
     -   4AD.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mac-Talla Nan Craeg
     
@@ -184,7 +184,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *The Sorrow of Derdriu.*
     -   Firecracker Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Natasha Pirard
     
@@ -193,7 +193,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *celestial flirtation / Taishido.*
     -   Dauw.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ryuichi Sakamoto
     
@@ -202,7 +202,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *async.*
     -   Commons / Milan.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Moskitoo
     
@@ -211,7 +211,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Unspoken Poetry.*
     -   HEADZ.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sam Annand
     
@@ -220,7 +220,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Cupar Grain Silo.*
     -   Blackford Hil.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sébastien Roux
     
@@ -229,9 +229,9 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Trigram for Earth / 50 Frequency and Amplitude Modulated Sine Waves Describing a.*
     -   Portraits GRM.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sophia Kasradze
     
@@ -239,7 +239,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     
     -   *Yarrow Stalks.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ava Rasti
     
@@ -248,7 +248,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *The River.*
     -   FatCat Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Love Is Yes
     
@@ -257,7 +257,7 @@ Also, we take a trip down The Portal with the saxophonist, vocalist, producer an
     -   *Love Is Yes.*
     -   Kit Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jim Rafferty
     

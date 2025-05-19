@@ -6,7 +6,7 @@
 
 Sun 13 Apr 2025
 
-[![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)](app://obsidian.md/sounds/play/m0029rzw)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 ## Vinyl Weekender: Crackly late-night listening… with Zakia
 
@@ -23,7 +23,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hypnotic Brass Ensemble
     
@@ -32,7 +32,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Book of Sound.*
     -   Honest Jon's Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Barbara & Ernie
     
@@ -41,7 +41,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Prelude To.*
     -   Cotillion Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lesley Duncan
     
@@ -50,7 +50,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Moon Bathing.*
     -   MCA Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Robbie Basho
     
@@ -59,7 +59,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *The Grail & The Lotus.*
     -   Takoma.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kolida Babo
     
@@ -68,7 +68,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Kolida Babo.*
     -   MIC.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Moondog
     
@@ -77,7 +77,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *The Streets of New York.*
     -   Mars.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Count Ossie & The Mystic Revelation Of Rastafari
     
@@ -86,7 +86,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Grounation.*
     -   Soul Jazz.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ginger Baker
     
@@ -95,7 +95,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Strativarious.*
     -   Polydor.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Surya Botofasina
     
@@ -104,7 +104,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Ashram Sun.*
     -   Spiritmuse Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tanto Pressanto
     
@@ -113,7 +113,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Ballads.*
     -   A Colourful Storm.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Filho da Mãe
     
@@ -122,7 +122,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Mergulho.*
     -   Lovers & Lollypops.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Untitled
     
@@ -131,7 +131,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Noises.*
     -   Cortizona.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Don Cherry
     
@@ -140,7 +140,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Om Shanti Om.*
     -   Black Sweat Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Les Frères Mégri
     
@@ -149,7 +149,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Les Freres Megri.*
     -   Philips.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ida Laila
     
@@ -157,7 +157,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     
     -   *Ida Laila & Orkes Melayu Awara - Kutukan Ibu.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Biluka y Los Caníbales
     
@@ -166,7 +166,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *The Paths Of Pain - The CAIFE Label, Quito, 1960-68.*
     -   Honest Jon's Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joshua Abrams
     
@@ -175,7 +175,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Mandatory Reality.*
     -   Eremite Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### J.D. Emmanuel
     
@@ -183,7 +183,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     
     -   *Echoes From Ancient Caves.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Iury Lech
     
@@ -192,7 +192,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Otra Rumorosa Superficie.*
     -   Utopia Records Inc.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Knoel Scott & Marshall Allen
     
@@ -201,7 +201,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *My Words Are Music: A Celebration of Sun Ra's Poetry.*
     -   Omni Sound.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Éloïse Decazes & Delphine Dora
     
@@ -210,7 +210,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Folk Songs Cycle.*
     -   Okraina Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Emmanuelle Parrenin
     
@@ -219,7 +219,7 @@ Dive into Zakia’s genre-spanning collection - there’s a huge stack of all-ti
     -   *Maison Rose.*
     -   Souffle Continu Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### D\*Note
     

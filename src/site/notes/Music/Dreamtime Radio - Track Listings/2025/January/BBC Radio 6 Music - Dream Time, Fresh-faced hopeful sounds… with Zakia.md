@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Fresh-faced hopeful sounds… with Zakia](https://www.bbc.co.uk/programmes/m0026kwc)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 5 Jan 2025
 ## Fresh-faced hopeful sounds… with Zakia
@@ -25,7 +25,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kim en Lyckle
     
@@ -33,7 +33,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   the third of may.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bert Jansch
     
@@ -41,7 +41,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Moonshine.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Maya Dunietz, String Ensemble & Ballad of the Spirits
     
@@ -49,7 +49,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Emahoy Tsege Mariam Gebru played by Maya Dunietz & String Ensemble, Live in Paris.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mermaid Chunky
     
@@ -57,7 +57,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   slif slaf slof.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Luzmila Carpio
     
@@ -65,7 +65,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Arawi: The Spirit of the Andes.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### ゑでぃまぁこん
     
@@ -73,7 +73,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   や​っ​ほ​の​ぽ​と​り​　​yahho no potori.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Er. Jazz
     
@@ -81,7 +81,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Even the Forest Hums: Ukrainian Sonic Archives 1971​-​1996.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lia Kohl
     
@@ -89,7 +89,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Normal Sounds.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kojun
     
@@ -97,7 +97,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   水​中​庭​園 (The Water Garden).
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rattle
     
@@ -105,7 +105,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Encircle2024.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kit Sebastian
     
@@ -113,7 +113,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Enkaz.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joyce
     
@@ -121,7 +121,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Visions of Dawn.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Barbara Moore Singers
     
@@ -129,7 +129,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Fuzzy Felt Folk.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mystery Tiime
     
@@ -137,13 +137,13 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *Maudlin Tales Of Grief & Love.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Zammi Mann Man-Man
     
     Caribbean Songs and Games
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### David Fenech & Klimperei
     
@@ -151,7 +151,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *Rainbow de Nuit.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### My Jazzy Child
     
@@ -159,7 +159,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *Extrac​ø​ntinent.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Shabaka Hutchings & André 3000
     
@@ -167,7 +167,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Impulse! Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mermaid Chunky
     
@@ -175,7 +175,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   DFA Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dreadzone
     
@@ -184,15 +184,15 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     -   *Second Light.*
     -   Virgin Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Wojciech Rusin
     
     Swedenborg in the Forest
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Delia Derbyshire, Barry Bermange & BBC Radiophonic Workshop
     
@@ -200,7 +200,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *Interventions for Radio.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Woo
     
@@ -208,9 +208,9 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *Into the Heart of Love.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Elliot Vernon
     
@@ -218,7 +218,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *The Clangers.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Daniel Padden & Bear Kenchington
     
@@ -226,7 +226,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *The Bellow Switch.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### In Flagranti
     
@@ -234,7 +234,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *Sprezzatura.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Phyllis April King
     
@@ -242,7 +242,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *Jammy Smears.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Vernon & Burns
     
@@ -250,7 +250,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *The tune the old cow died of.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sanda Kerr & John Faulkner
     
@@ -258,7 +258,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *The Music From Bagpuss.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mermaid Chunky
     
@@ -266,7 +266,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *VEST.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Duke Hugh
     
@@ -274,7 +274,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   *SHOUTS: 5 Years of Rhythm Section INTL.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### C.P.I.
     
@@ -282,7 +282,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Hivern Discs.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Massive Attack
     
@@ -290,7 +290,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Circa.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Electrelane
     
@@ -298,7 +298,7 @@ Plus a very special Dreambience mix conjured up by the weird and wonderful Strou
     
     -   Too Pure.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Elton John & Lesley Duncan
     

@@ -25,7 +25,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### George Duke
     
@@ -34,7 +34,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *The Inner Source.*
     -   MPS Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Nala Sinephro
     
@@ -43,7 +43,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Endlessness.*
     -   Warp.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tony Njoku
     
@@ -52,7 +52,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Last Bloom EP.*
     -   PRAH Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bill Fay & Mary Lattimore
     
@@ -61,7 +61,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Love Is The Tune.*
     -   Dead Oceans.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ira Sullivan
     
@@ -70,7 +70,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Strings Attached.*
     -   Strings Attached.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Phi‐Psonics
     
@@ -79,7 +79,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Octava.*
     -   Gondwana Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tara Clerkin Trio
     
@@ -88,7 +88,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *On The Turning Ground.*
     -   World of Echo.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### SPEED, GLUE & SHINKI
     
@@ -97,7 +97,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Speed, Glue & Shinki.*
     -   Atlantic.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bibio
     
@@ -106,7 +106,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Sleep On The Wing.*
     -   Warp.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lynda Dawn
     
@@ -114,7 +114,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     
     -   *11th Hour.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Donny Hathway
     
@@ -123,7 +123,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Someday We'll All Be Free.*
     -   Atlantic.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### ML Buch
     
@@ -132,7 +132,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Suntub.*
     -   15 love.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### anaiis & Grupo Cosmo
     
@@ -141,7 +141,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *anaiis & Grupo Cosmo.*
     -   5dB Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Milton Nascimento
     
@@ -150,7 +150,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Milton.*
     -   UMG.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Clarissa Connelly
     
@@ -159,7 +159,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *World of Work.*
     -   Warp.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gary Stadler & Wendy Rule
     
@@ -167,7 +167,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     
     -   *Deep Within A Faerie Forest.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Daniel Lentz
     
@@ -176,9 +176,9 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Missa Umbrarum.*
     -   New Albion.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Milan W.
     
@@ -187,7 +187,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Leave Another Day.*
     -   stroom.tv.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Milan W.
     
@@ -196,7 +196,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Leave Another Day.*
     -   stroom.tv.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Samih Madhoun
     
@@ -204,9 +204,9 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     
     -   *Oud Music From Gaza.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Durutti Column
     
@@ -215,7 +215,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Someone Else's Party.*
     -   Artful Records / Universal.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Be With You
     
@@ -224,7 +224,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Be With You.*
     -   Lobster Theremin.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ryuichi Sakamoto
     
@@ -233,7 +233,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *L.O.L. (Lack Of Love).*
     -   KAB America Inc..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ann Annie
     
@@ -242,7 +242,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *By Morning.*
     -   Nettwerk.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### 陳明章
     
@@ -251,7 +251,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *戀戀風塵.*
     -   Efficient Space.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gidge
     
@@ -260,7 +260,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Autumn Bells.*
     -   Atomnation.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### upsammy
     
@@ -269,7 +269,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Strange Meridians.*
     -   topo2.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Laytha
     
@@ -278,7 +278,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Daphne.*
     -   Laytha.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Blue Angels
     
@@ -287,7 +287,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Sue.*
     -   UNO NYC.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Romance
     
@@ -296,7 +296,7 @@ Plus the French-Senegalese artist anaiis is our final guest of the year. She sha
     -   *Once Upon A Time.*
     -   ECSTATIC.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Little Shadows
     

@@ -25,7 +25,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Emahoy Tsegué-Maryam Guèbrou
     
@@ -34,7 +34,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Emahoy Tsege Mariam Gebru.*
     -   Mississippi Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Resavoir
     
@@ -43,7 +43,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Love Theme from Spartacus (live at 'les sons du cosmos' studio).*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Goya Gumbani
     
@@ -52,7 +52,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Warlord of the Weejuns.*
     -   Ghostly.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mark de Clive‐Lowe
     
@@ -61,13 +61,13 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *past present (tone poems across time).*
     -   BBE.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ben McElroy
     
     I Must Have Walked Past There A Thousand Times (with Elinor Rowlands)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Billy Strayhorn
     
@@ -76,7 +76,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *The Peaceful Side.*
     -   United Artists Jazz.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joni Mitchell
     
@@ -85,7 +85,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *For the Roses.*
     -   Asylum Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Phi‐Psonics
     
@@ -94,7 +94,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Expanding to One.*
     -   Gondwana Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Masayoshi Fujita
     
@@ -103,7 +103,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Migratory.*
     -   Erased Tapes.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gavsborg & Toke
     
@@ -112,7 +112,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *I’m so happy to see the clouds.*
     -   Equiknoxx.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kwashibu Area Band
     
@@ -121,7 +121,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Love Warriors Anthem.*
     -   Soundway Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ultra Naté and 4Hero
     
@@ -130,7 +130,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Stranger than Fiction.*
     -   Strictly Rhythm.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Syreeta
     
@@ -139,7 +139,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Spinnin’ and Spinnin’.*
     -   Tamla Motown.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Massive Attack
     
@@ -148,7 +148,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Massive Attack \[Singles 90-98\].*
     -   Circa / Virgin.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Chronixx
     
@@ -157,7 +157,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *I Can / Skankin Sweet.*
     -   24x7 Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Roberta Flack
     
@@ -166,7 +166,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *First Take.*
     -   Atlantic.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Capitalaires
     
@@ -175,7 +175,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Peace Among The Nation / Glory, Glory.*
     -   Bos Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Vernon Spring
     
@@ -184,7 +184,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Under a Familiar Sun.*
     -   BMG.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alina Bzhezhinska & Tulshi
     
@@ -193,7 +193,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Whispers of Rain.*
     -   Tru Thoughts.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Doc Hopkins
     
@@ -202,7 +202,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Never a Pal Like Mother.*
     -   Dust-to-Digital.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mira Calix
     
@@ -211,7 +211,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Absent Origin.*
     -   Warp Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Róis
     
@@ -219,7 +219,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     
     -   *UISCE AGUS BEAN.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Róis
     
@@ -227,7 +227,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     
     -   *UISCE AGUS BEAN.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Judith Hamann
     
@@ -236,7 +236,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Aunes.*
     -   Shelter Press.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### pablo diserens & the ocean community
     
@@ -245,7 +245,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *upstream ensemble.*
     -   f-o-m.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Albert Gilbert Balon
     
@@ -254,7 +254,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *The Magnesia Suite.*
     -   Recital.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kirk Barley
     
@@ -263,7 +263,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Lux.*
     -   Odda Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sarathy Korwar
     
@@ -272,7 +272,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *KAL (Real World).*
     -   The Leaf Label.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Volodja Brodsky
     
@@ -281,7 +281,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Raindrops.*
     -   Miraaz Estonia.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Merope
     
@@ -290,7 +290,7 @@ Elsewhere, plenty of Zakia’s new musical discoveries, including improvised med
     -   *Vėjula.*
     -   Stroom TV.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Prince Nico Mbarga & Rocafil Jazz
     

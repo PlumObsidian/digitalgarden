@@ -22,7 +22,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Miquela E Lei Chapacans
     
@@ -31,7 +31,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Miquela E Lei Chapacans.*
     -   Finders Keepers.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dog Unit
     
@@ -40,7 +40,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *At Home, Still.*
     -   Brace Yourself Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dionne Warwick
     
@@ -49,7 +49,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *The April Fools.*
     -   Scepter Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Léa Sen
     
@@ -58,7 +58,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *LEVELS.*
     -   Partisan Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Barbarelle
     
@@ -67,7 +67,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Celesta.*
     -   Hidden Harmony Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Light-Space Modulator
     
@@ -76,7 +76,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *The Rising Wave.*
     -   AD93.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Arco Iris
     
@@ -85,7 +85,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Sudamérica o el regreso a la aurora.*
     -   Music Hall.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Litto Nebbia
     
@@ -94,7 +94,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Canciones que no quieren morir.*
     -   Vampi Soul.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### 岡田拓郎
     
@@ -103,7 +103,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *The Near End, The Dark Night, The County Line.*
     -   Temporal Drift.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gershon Kingsley
     
@@ -112,7 +112,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Music to Moog By.*
     -   Audio Fidelity.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Johanna Warren
     
@@ -120,7 +120,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     
     -   *The Night of the Wind.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Men I Trust
     
@@ -128,7 +128,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     
     -   *Equus Asinus.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mess Esque
     
@@ -137,7 +137,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Jay Marie, Comfort Me.*
     -   Drag City Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Pharoah Sanders
     
@@ -146,7 +146,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Izipho Zam (My Gifts) (2025 Reissue).*
     -   Strata East / Mack Avenue.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sheldon Agwu
     
@@ -154,7 +154,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     
     -   *Kintsugi.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Pequeño Y Primitivo
     
@@ -163,7 +163,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Viento Sur.*
     -   Vampi Soul.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Anaïs Cardot
     
@@ -171,7 +171,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     
     -   *Pink Magnolias EP.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gregory Uhlmann, Josh Johnson, Sam Wilkes
     
@@ -180,7 +180,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Uhlmann Johnson Wilkes.*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Violeta García
     
@@ -189,7 +189,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *IN / OUT.*
     -   Les Disques Bongo Joe.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Satomimagae
     
@@ -198,7 +198,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Taba.*
     -   RVNG INTL.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tim Bernardes
     
@@ -207,7 +207,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Recomeçar.*
     -   Psychic Hotline.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Vangelis
     
@@ -216,7 +216,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *L'Apocalypse des animaux.*
     -   Polydor.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ryuichi Sakamoto
     
@@ -225,7 +225,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Beauty.*
     -   Virgin.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ichiko Aoba
     
@@ -234,7 +234,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Luminescent Creatures.*
     -   HERMINE.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Oksana Linde
     
@@ -243,7 +243,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Travesías.*
     -   Buh Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Colloboh
     
@@ -252,7 +252,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Saana Sahel.*
     -   LEAVING RECORDS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Cocteau Twins
     
@@ -261,7 +261,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Victorialand.*
     -   Vertigo Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Barbarelle
     
@@ -270,7 +270,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Celesta.*
     -   Hidden Harmony Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Beach House
     
@@ -279,7 +279,7 @@ There’s also a stack of sounds from Argentina this week, including the Buenos 
     -   *Bloom.*
     -   Mistletone Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Everything but the Girl
     

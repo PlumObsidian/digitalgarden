@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Poetry and percussion… with Zakia](https://www.bbc.co.uk/programmes/m0026wp8)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 19 Jan 2025
 ## Poetry and percussion… with Zakia
@@ -25,7 +25,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### David Bowie
     
@@ -34,7 +34,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *The Next Day Extra.*
     -   Parlophone.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bertrand Chamayou
     
@@ -43,7 +43,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Ravel: Complete Piano Works.*
     -   Erato.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### BZDB
     
@@ -52,7 +52,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Jump Ship, Sit Lean, Be Still, Stand Tall.*
     -   AD 93.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Discovery Zone
     
@@ -61,7 +61,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Quantum Web.*
     -   RVNG Intl..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### THE NARRATOR, Isaiah Hull & Aloisius
     
@@ -70,7 +70,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *suddenly.*
     -   life is beautiful records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Wojciech Rusin
     
@@ -79,7 +79,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Honey for the Ants.*
     -   AD 93.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joshua Idehen
     
@@ -88,7 +88,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Mum Does The Washing EP.*
     -   Big Wednesday.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joe Chambers, Kevin Diehl, Chad Taylor
     
@@ -97,7 +97,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Onilu.*
     -   Eremite Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Nikki Giovanni
     
@@ -106,7 +106,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *The Way I Feel.*
     -   Niktom.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### UMO Jazz Orchestra & Eero Koivistoinen
     
@@ -115,7 +115,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *If Music presents: You Need This! A Journey Into Deep Jazz Vol. 4 compiled by Je.*
     -   BBE.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Takuro Okdada
     
@@ -124,7 +124,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Betsu No Jikan.*
     -   Newhere Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### unkle G
     
@@ -133,7 +133,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *an honest meal.*
     -   EquiknoxxMusic.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Brion Gysin
     
@@ -142,7 +142,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Junk.*
     -   wewantsounds.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Cameron Winter
     
@@ -151,7 +151,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Partisan / Play It Again Sam.*
     -   Heavy Metal.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mark William Lewis
     
@@ -159,7 +159,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     
     -   *Sparkles 22​-​24.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Philip Glass
     
@@ -168,7 +168,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Glass: Uakti - Aguas Da Amazonia.*
     -   Philips.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sheila Chandra
     
@@ -177,7 +177,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Paul Hillery presents Folk Funk & Trippy Troubadours Volume 3.*
     -   BBE.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Durutti Column
     
@@ -186,7 +186,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *LC.*
     -   Factory.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### GAISTER
     
@@ -195,7 +195,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *GAISTER.*
     -   AD 93.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Olga Anna Markowska
     
@@ -204,7 +204,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *ISKRA.*
     -   Miasmah Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Marianna Maruyama & Hessel Veldman
     
@@ -213,7 +213,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Salt.*
     -   stroom.tv.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### anrimeal
     
@@ -222,7 +222,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *1\. Title - Half Fool Half Empty.*
     -   Lost Wisdom / demo records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### David Toop
     
@@ -231,7 +231,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Screen Ceremonies.*
     -   Wire Editions.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gary Lindorff and Fred Lonberg-Holm
     
@@ -240,7 +240,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *FA #15 Sandblasted Poems.*
     -   Flying Aspidistra.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Poemme
     
@@ -249,7 +249,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Frozen Passages.*
     -   Stereoscenic Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### marucoporoporo
     
@@ -258,7 +258,7 @@ Plus the poet and musician Joshua Idehen drops in to share one of his own poems 
     -   *Conceive the Sea.*
     -   FLAU.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joni Mitchell
     

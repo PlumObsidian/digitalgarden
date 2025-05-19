@@ -8,7 +8,7 @@
 
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 27 Oct 2024
 ## The darker side of Dream Time… with Zakia
@@ -26,7 +26,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mary Lou Williams
     
@@ -35,7 +35,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Mary Lou Williams / Black Christ of the Andes.*
     -   Folkways.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Charlie Mariano & Wolfgang Dauner
     
@@ -44,7 +44,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Meditation On A Landscape - Tagore.*
     -   Mood Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Black Sabbath
     
@@ -53,7 +53,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Master of Reality.*
     -   Vertigo.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Angeline Morrison
     
@@ -62,7 +62,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Ophelia.*
     -   Angeline Morrison.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Magnet
     
@@ -71,7 +71,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Wicker Man OST.*
     -   Trunk.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Svitlana Nianio
     
@@ -80,7 +80,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Kytytsi.*
     -   Koka Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Merlina So Sad
     
@@ -89,7 +89,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Lo​-​Fi Devotion.*
     -   Edmoon Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Steve 'N' Leila
     
@@ -98,7 +98,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Steve 'N’ Leila.*
     -   Steve 'N’ Leila.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Deathbed Convert
     
@@ -107,7 +107,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Inverse Field Vol​.​1 - Inishowen.*
     -   Touch Sensitive.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Todd Rundgren
     
@@ -116,7 +116,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Healing.*
     -   Bearsville / Rhino.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mike Reed
     
@@ -125,7 +125,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *The Separatist Party.*
     -   We Jazz.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Vanishing Faces
     
@@ -133,7 +133,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     
     -   *Two Songs for the Summer Solstice.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Angeline Morrison
     
@@ -142,7 +142,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Ophelia.*
     -   Angeline Morrison.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Young Tradition
     
@@ -151,7 +151,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Galleries.*
     -   Transatlantic Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Brìghde Chaimbeul
     
@@ -160,7 +160,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Carry Them With Us.*
     -   Glitterbeat Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Brìghde Chaimbeul
     
@@ -169,7 +169,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Carry Them With Us.*
     -   Glitterbeat Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jake Thackray
     
@@ -178,7 +178,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Bantam Cock.*
     -   EMI.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Buffy Sainte‐Marie
     
@@ -187,7 +187,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Illuminations.*
     -   Vanguard.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Cibo Matto
     
@@ -196,7 +196,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Cibo Matto EP.*
     -   El Diablo.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Accident du travail
     
@@ -205,7 +205,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *tr​é​s pr​è​cieux sang.*
     -   Trilogy Tapes.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Disciples
     
@@ -214,7 +214,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *ABBARA - KABBAD - TANASSA - LIBERATION.*
     -   ZamZam Sounds.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### John Leyton
     
@@ -223,7 +223,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Johnny Remember Me.*
     -   EMI.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Manja Ristić & Tomáš Šenkyřík
     
@@ -232,7 +232,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Vstal.*
     -   Skupina.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Beverly Glenn‐Copeland
     
@@ -241,7 +241,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Incantations.*
     -   Séance Centre.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hiro Ama
     
@@ -250,7 +250,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Music For Peace and Harmony.*
     -   PRAH Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rachel Lyn
     
@@ -259,7 +259,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Seen Any Monsters Lately?.*
     -   My Own Imaginary World.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### andrea parker & daz quayle
     
@@ -268,7 +268,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *private dreams and public nightmares.*
     -   aperture records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ancient Plastix
     
@@ -277,7 +277,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *IIII.*
     -   Maple Death Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Haunting Spirits and Haunted Places
     
@@ -286,7 +286,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Spectra ex Machina / A Sound Anthology of Occult Phenomena 1920​-​2017 Vol​.​1.*
     -   Sub Rosa Label.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Eva Bowan
     
@@ -295,7 +295,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Fore Hallowe'en.*
     -   Folklore Tapes.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Broadcast
     
@@ -304,7 +304,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Broadcast And The Focus Group Investigate Witch Cults Of The Radio Age.*
     -   Warp.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ogoya Nengo And The Dodo Women's Group
     
@@ -313,7 +313,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Rang'ala (New Recordings From Siaya County, Kenya).*
     -   Honest Jon's Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gazelle Twin & NYX
     
@@ -322,7 +322,7 @@ Plus the folk musician Angeline Morrison is on hand to act as our friendly Samha
     -   *Deep England.*
     -   NYX Collective Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Fred Darian with Bill Loose Orchestra
     

@@ -5,8 +5,7 @@
 [[ReadItLater\|ReadItLater]] [[Article\|Article]]
 
 
-[![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)](app://obsidian.md/sounds/play/m0029y42)
-
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 ## Carnatic sounds and dreamy musical selections … with Zakia
 
 Sun 20 Apr 2025
@@ -24,7 +23,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Flock
     
@@ -33,7 +32,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Flock II.*
     -   Strut.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Garoa
     
@@ -42,7 +41,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Voa.*
     -   Sucata Tapes.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Barney Keen
     
@@ -51,7 +50,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Harbinger.*
     -   Touching Bass.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Stereolab
     
@@ -60,7 +59,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Dots and Loops.*
     -   Warp.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Star Teen Rhythm
     
@@ -69,7 +68,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Dreamy Music.*
     -   Haishan Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### T.K. Ramamoorthy
     
@@ -78,7 +77,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Fabulous Notes And Beats Of The Indian Carnatic-Jazz.*
     -   Odeon.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sarathy Korwar
     
@@ -87,7 +86,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Kalak (Live in Mumbai).*
     -   The Leaf Label.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Adele Sebastian
     
@@ -96,7 +95,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Desert Fairy Princess.*
     -   UGMAA.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Paul Jones
     
@@ -105,7 +104,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *When Do We Just Float Away?.*
     -   PRAH Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bob Dylan
     
@@ -114,7 +113,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *The Freewheelin’ Bob Dylan.*
     -   Columbia.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jim White and Marisa Anderson
     
@@ -123,7 +122,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Swallowtail.*
     -   Thrill Jockey Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ananda Shankar
     
@@ -132,7 +131,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Ananda Shankar And His Music.*
     -   Mr Bongo.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hamsi Boubeker
     
@@ -141,7 +140,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Le Chant Des Profondeurs.*
     -   Frederiksberg Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sonlife
     
@@ -150,7 +149,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Night Ride EP.*
     -   DSPPR.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Phil Cook
     
@@ -159,7 +158,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Appalachia Borealis.*
     -   Psychic Hotline.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Vernon Spring
     
@@ -168,7 +167,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Under a Familiar Sun.*
     -   Lanugo Fur / RVNG Intl.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sarathy Korwar
     
@@ -177,7 +176,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Day to Day.*
     -   Ninja Tune.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Nū
     
@@ -186,7 +185,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Tezetaye.*
     -   Highly Contagious.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Carlos Niño & Friends
     
@@ -195,7 +194,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Flutes, Echoes, It's All Happening!.*
     -   LEAVING RECORDS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alice Coltrane and Charlie Hayden
     
@@ -204,7 +203,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Closeness.*
     -   Horizon.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Yara Asmar
     
@@ -213,7 +212,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *synth waltzes and accordion laments.*
     -   Hive Mind Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Cia Himiân Lí
     
@@ -222,7 +221,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Vual / Sin Thé (oral / without tea).*
     -   tsss tapes.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Macie Stewart
     
@@ -231,7 +230,7 @@ And, elsewhere, we hear from special guest Sarathy Korwar, a percussionist who f
     -   *Spring Becomes You Spring Becomes New.*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
 
 

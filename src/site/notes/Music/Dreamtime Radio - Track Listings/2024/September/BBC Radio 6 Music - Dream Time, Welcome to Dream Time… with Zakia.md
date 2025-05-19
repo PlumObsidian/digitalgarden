@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Welcome to Dream Time… with Zakia](https://www.bbc.co.uk/programmes/m00232vr)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 22 Sep 2024
 ## Welcome to Dream Time… with Zakia
@@ -25,7 +25,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Antonina Nowacka
     
@@ -34,7 +34,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Sylphine Soporifera.*
     -   Mondoj.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sam Prekop
     
@@ -43,7 +43,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Sam Prekop.*
     -   Thrill Jockey.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Poly Styrene
     
@@ -52,7 +52,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Translucence.*
     -   Rhino.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Carlo Alexandre Teixeira & Mayra Fernandes
     
@@ -61,7 +61,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Elsewhere CC.*
     -   Les Disques Bongo Joe.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dorothy Ashby
     
@@ -70,7 +70,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Jazz Anthology.*
     -   Miradas Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### SOYUZ, Asha Puthli & Sven Wunder
     
@@ -79,7 +79,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Mr Bongo Record Club Vol. 7.*
     -   MR BONGO.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dorothy Carter
     
@@ -88,7 +88,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Troubadour.*
     -   Drag City.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dorothy Carter
     
@@ -97,7 +97,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Troubadour.*
     -   Drag City.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Pentangle
     
@@ -106,7 +106,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Basket Of Light.*
     -   Castle Communications.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Santiago
     
@@ -115,13 +115,13 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Forever Gamblin' On You.*
     -   Forager Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Nala Sinephro
     
     Continuum 1
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jane Bee
     
@@ -130,7 +130,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *SINGLE.*
     -   Tuff Scout.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mulianne Joor
     
@@ -139,9 +139,9 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *SINGLE.*
     -   Dave De Rose.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The KLF
     
@@ -150,7 +150,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Chill Out.*
     -   KLF Communications.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jim White & Marisa Anderson
     
@@ -159,7 +159,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Swallowtail.*
     -   Thrill Jockey.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Madosini
     
@@ -168,7 +168,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Power To Women.*
     -   Platoon.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Todd Barton & Ursula K. Le Guin
     
@@ -177,7 +177,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Music And Poetry Of The Kesh.*
     -   Freedom To Spend.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Clan Caimán
     
@@ -186,9 +186,9 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Pica​-​Pau (woodpecker).*
     -   EM Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Nídia & Valentina
     
@@ -197,7 +197,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Estradas.*
     -   Latency.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ibukun Sunday
     
@@ -206,7 +206,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Harmony / Balance.*
     -   Phantom Limb.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Black Brunswicker
     
@@ -215,7 +215,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Been Around Here Before.*
     -   Nettwerk Music Group.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lamin Fofana
     
@@ -224,7 +224,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Temporary Stored II.*
     -   KMRU.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Meemo Comma
     
@@ -233,7 +233,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Decimation Of I.*
     -   Meemo Comma.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hiroshi Ebina
     
@@ -242,7 +242,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *SINGLE.*
     -   KITCHEN. LABEL.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Terry Riley
     
@@ -251,7 +251,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Autodreamographical Tales.*
     -   Tzadik.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mary Lattimore & Walt McClements
     
@@ -260,7 +260,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Rain on the Road.*
     -   Thrill Jockey.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dylan Henner
     
@@ -269,7 +269,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *performs Raymond Scott's Soothing Sounds for Baby.*
     -   Dauw.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Félicia Atkinson
     
@@ -278,7 +278,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Space As An Instrument.*
     -   Shelter Press.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Simon Mavin
     
@@ -287,7 +287,7 @@ We’ll be taking a trip down The Portal with the artist Jeremy Deller, who sele
     -   *Some Days.*
     -   Mavin Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Aphrodite’s Child
     

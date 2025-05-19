@@ -25,7 +25,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hiroyuki Onogawa
     
@@ -34,7 +34,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *August in the Water: Music for Film 1995​-​2005.*
     -   Mana Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sun City Girls & J. Spaceman
     
@@ -43,7 +43,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Mister Lonely - Music From A Film By Harmony Korine.*
     -   Drag City.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sharada Shashidhar
     
@@ -52,7 +52,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Soft Echoes.*
     -   LEAVING RECORDS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sharada Shashidhar
     
@@ -61,7 +61,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Soft Echoes.*
     -   LEAVING RECORDS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Annarella and Django
     
@@ -70,7 +70,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Jouer.*
     -   We Are Busy Bodies.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Brigitte Fontaine et Areski
     
@@ -79,7 +79,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Vous et Nous.*
     -   kythibong records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Chico Freeman
     
@@ -88,7 +88,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Kings of Mali.*
     -   India Navigation.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jacken Elswyth
     
@@ -97,7 +97,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *At Fargrounds.*
     -   Wrong Speed Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Marysia Osu
     
@@ -106,7 +106,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *harp, beats & dreams.*
     -   Brownswood Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Marysia Osu
     
@@ -115,7 +115,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *harp, beats & dreams.*
     -   Brownswood Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Marysia Osu
     
@@ -124,7 +124,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *harp, beats & dreams.*
     -   Brownswood Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Décima Víctima
     
@@ -133,7 +133,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Décima Víctima.*
     -   Munster Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Clarissa Connelly
     
@@ -142,7 +142,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *World of Work.*
     -   Warp.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Midori Takada
     
@@ -151,7 +151,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Through The Looking Glass.*
     -   RCA Red Seal.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Aphex Twin
     
@@ -160,7 +160,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Selected Ambient Works Volume II (Expanded Edition).*
     -   Warp.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Astrid Sonne
     
@@ -169,7 +169,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Great Doubt EDITS.*
     -   Escho.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### duendita
     
@@ -178,7 +178,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *the mind is a miracle.*
     -   FREEDOM DR.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Coti
     
@@ -187,7 +187,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Theros.*
     -   Dark Entries Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Carlos Haayen Y Su Piano Candeloso
     
@@ -196,7 +196,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Super Disco Pirata - De Tepito Para El Mundo 1965​-​1980 (Analog Africa No​.​39).*
     -   Analog Africa.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Raúl García Zárate
     
@@ -204,7 +204,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     
     -   Honest Jon's.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Fabiano do Nascimento
     
@@ -213,7 +213,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Olhos D'​á​gua.*
     -   Fabiano do Nascimento.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Landless
     
@@ -222,7 +222,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *L​ú​ireach.*
     -   Glitterbeat Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Nick Drake
     
@@ -231,7 +231,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Pink Moon.*
     -   Island.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Fohn
     
@@ -240,13 +240,13 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Seanteach.*
     -   Odda Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Idrîsî Ensemble
     
     Oty Theos
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Modra
     
@@ -254,7 +254,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     
     -   *Bohemian Blue.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Damsel Elysium
     
@@ -263,13 +263,13 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *Whispers from Ancient Vessels.*
     -   AD 93.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Blake Lee
     
     Font (feat. KMRU)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Langston Hughes
     
@@ -277,7 +277,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     
     -   Smithsonian Folkways Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ariel Kalma
     
@@ -286,7 +286,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *An Evolutionary Music (Original Recordings: 1972 - 1979).*
     -   RVNG Intl..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Merope
     
@@ -295,7 +295,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *V​ė​jula.*
     -   stroom.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Precious Mayhem
     
@@ -304,7 +304,7 @@ Zakia also shares a couple of brand new exclusive tracks - some medieval Mediter
     -   *The Softness I Sing.*
     -   Barkhausen Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Simon Anholt
     

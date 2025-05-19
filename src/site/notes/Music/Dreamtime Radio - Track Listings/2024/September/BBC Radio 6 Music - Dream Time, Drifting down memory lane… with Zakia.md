@@ -25,7 +25,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Shabaka Hutchings & Lianne La Havas
     
@@ -34,7 +34,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Perceive Its Beauty, Acknowledge Its Grace.*
     -   Impulse!.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Raul Lovisoni
     
@@ -43,7 +43,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Prati Bagnati Del Monte Analogo.*
     -   Cramps Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Zap Pow
     
@@ -52,7 +52,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Riverstone.*
     -   LMS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Terry Reid
     
@@ -61,7 +61,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Seed of Memory.*
     -   ABC Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Testbild!
     
@@ -70,9 +70,9 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Testbild!.*
     -   KALLIGRAMMOFON RECORDINGS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sandy Denny
     
@@ -81,7 +81,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Fotheringay 3.*
     -   Fledg'ling Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Broadcast
     
@@ -90,7 +90,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Distant Call - Collected Demos 2000-2006.*
     -   Warp.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Broadcast
     
@@ -99,7 +99,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Spell Blanket - Collected Demos 2006​-​2009.*
     -   Warp.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hania Rani
     
@@ -108,7 +108,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Nostalgia.*
     -   Gondwana Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dennis Bovell
     
@@ -117,7 +117,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Decibel: More Cuts & Dubs 1976-1983.*
     -   Pressure Sounds.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bhutan Balladeers
     
@@ -126,7 +126,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Your Face Is Like the Moon, Your Eyes Are Stars.*
     -   Glitterbeat Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mari Kvien Brunvoll & Stein Urheim with Moskus
     
@@ -135,13 +135,13 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Barefoot in Bryophyte.*
     -   Hubro.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Beatrice Dillon
     
     Seven Reorganisations I
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Laurie Anderson
     
@@ -150,7 +150,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Mister Heartbreak.*
     -   Warner Bros. Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dennis Bovell and The Dub Band
     
@@ -159,7 +159,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Audio Active.*
     -   Moving Target.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Blackbeard
     
@@ -168,7 +168,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *I Wah Dub.*
     -   More Cut Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mamman Sani & Tropikal Camel
     
@@ -177,7 +177,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Nijerusalem.*
     -   Batov Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Metronomy
     
@@ -186,7 +186,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *The English Riviera.*
     -   Because Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Benny Bock, Hans P. Kjorstad, and Sam Gendel
     
@@ -195,7 +195,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Dream Trio.*
     -   LEAVING RECORDS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Molly Drake
     
@@ -204,7 +204,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *The Tide's Magnificence: Songs and Poems of Molly Drake.*
     -   Bryter Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Forgetting You Is Like Breathing Water
     
@@ -213,7 +213,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Forgetting You Is Like Breathing Water.*
     -   Tin Angel Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Oliver Coates
     
@@ -222,7 +222,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Apparition.*
     -   RVNG Intl..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Carmen Villain
     
@@ -231,7 +231,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Only Love From Now On.*
     -   Smalltown Supersound.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lonnie Holley
     
@@ -240,13 +240,13 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *MITH.*
     -   Jagjaguwar.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Chantal Michelle
     
     A Place Memory Is Seeing In
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Leo Okagawa
     
@@ -254,7 +254,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     
     -   *Lower the Tonearm.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lena Platanos
     
@@ -263,7 +263,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Galop.*
     -   Lyra.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rikuto Fujimoto
     
@@ -272,7 +272,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Distant Landscapes.*
     -   130701.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### NYX & Laura Misch
     
@@ -281,7 +281,7 @@ We’ll be hearing reflections and selections from the legendary dubmaster Denni
     -   *Songs of Epping Forest :: Dreamscapes for Voice, Saxophone and Trees.*
     -   Earth Percent.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Minnie Riperton
     

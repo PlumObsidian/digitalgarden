@@ -6,7 +6,7 @@
 
 # [BBC Radio 6 Music - Dream Time, Love is in the air… with Zakia](https://www.bbc.co.uk/programmes/m0027vc6)
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 16 Feb 2025
 ## Love is in the air… with Zakia
@@ -24,7 +24,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alain Goraguer
     
@@ -33,7 +33,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Rare Soundtracks & Lost Tapes (1973-1984).*
     -   Transversales Disques.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Cathie O'Sullivan
     
@@ -42,7 +42,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Artesian Waters.*
     -   Larrikin Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### João Gilberto
     
@@ -51,7 +51,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *João Gilberto en México.*
     -   Orfeon / Philips.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### marucoporoporo
     
@@ -60,7 +60,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Conceive the Sea.*
     -   FLAU.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### KOKOROKO
     
@@ -69,7 +69,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Get the Message.*
     -   Brownswood.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Damon
     
@@ -78,7 +78,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Song Of A Gypsy.*
     -   Now Again Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Courtney Bryan
     
@@ -86,7 +86,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     
     -   *Quest for Freedom.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Africa
     
@@ -95,7 +95,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *From Africa With Love / Savin' All My Love.*
     -   Ode Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### MA.MOYO X Marysia Osu
     
@@ -104,7 +104,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *EarthCries / Gloriosa.*
     -   Síbín.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Coby Sey
     
@@ -113,7 +113,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Kiss From a Rose.*
     -   Coby Sey.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### seigfried komidashi
     
@@ -121,7 +121,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     
     -   *Leopard under a black sun.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lael Neale
     
@@ -130,7 +130,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Electricity.*
     -   Sub Pop Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Leong Lau
     
@@ -139,7 +139,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Dragon Man.*
     -   Left Ear Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Everything but the Girl
     
@@ -148,7 +148,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Eden.*
     -   Blanco y Negro.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Loa
     
@@ -157,7 +157,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Magpies (aden Rework).*
     -   Lima Limo Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Frank McComb
     
@@ -166,7 +166,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Straight From the Vault.*
     -   Boobeescoot Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Makaya McCraven
     
@@ -175,7 +175,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *In These Times.*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Park Jiha
     
@@ -184,7 +184,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *All Living Things.*
     -   Glitterbeat Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kaito Winse
     
@@ -193,7 +193,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Reele Bumbou.*
     -   Rebel Up! Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hara Alonso
     
@@ -202,7 +202,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *touch•me•not.*
     -   Fuu Lab.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Takeo Watanabe
     
@@ -211,7 +211,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Piece of my Scape.*
     -   Artificial Owl Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### City of Dawn
     
@@ -220,7 +220,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Liminal Space.*
     -   Geometric Lullaby.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joanna Brouk
     
@@ -229,7 +229,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Sounds of the Sea.*
     -   Numero Group.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Voice Actor & Squu
     
@@ -238,7 +238,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Lust (1).*
     -   STROOM.tv.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Romance
     
@@ -247,7 +247,7 @@ Plus we hear some words on dreams and memory from the writer, educator and sound
     -   *Endless Love.*
     -   ECSTATIC.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Yoko Ono
     

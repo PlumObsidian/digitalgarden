@@ -34,11 +34,7 @@ Plus, musician and sound artist Hinako Omori shares reflections on healing frequ
     -   Gondwana Records.
     
 -   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
-    
-    ### Don Robertson
-    
-    The Candle
-    
+    ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)   
     -   *Dawn.*
     -   Limelight.
     

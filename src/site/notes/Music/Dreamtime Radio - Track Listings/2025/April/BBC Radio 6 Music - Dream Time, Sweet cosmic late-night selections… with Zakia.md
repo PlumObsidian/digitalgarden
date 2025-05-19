@@ -8,7 +8,7 @@ Sun 27 Apr 2025
 
 
 
-[![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)](app://obsidian.md/sounds/play/m002b7dj)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 ## Sweet cosmic late-night selections… with Zakia
 
@@ -25,7 +25,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Vernon Spring
     
@@ -34,7 +34,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Strength Of A Young Man.*
     -   Lima Limo Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Phi‐Psonics
     
@@ -43,7 +43,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Expanding to One.*
     -   Gondwana Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Linda Perhacs
     
@@ -52,7 +52,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Parellelograms.*
     -   Kapp Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Francis Bebey
     
@@ -61,7 +61,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Trésor Magnétique (Magnetic Treasure).*
     -   Africa Seven.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Keiran Francis
     
@@ -70,7 +70,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Love is the most important thing (1).*
     -   Plates.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Breath
     
@@ -79,7 +79,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Slow Down.*
     -   2001.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Q‐Tip
     
@@ -88,7 +88,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Kamaal the Abstract.*
     -   Battery Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Vernon Spring
     
@@ -97,7 +97,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Under A Familar Sun.*
     -   RVNG Intl..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Vernon Spring
     
@@ -106,7 +106,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Under A Familar Sun.*
     -   RVNG Intl..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kendrick Lamar
     
@@ -115,7 +115,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Mr. Morale and the Big Steppers.*
     -   Interscope.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### SAULT
     
@@ -124,7 +124,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *AIR.*
     -   Forever Living Originals.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### OK Jazz
     
@@ -133,7 +133,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Pas Un Pas Sans... The Boleros Of O.K. Jazz 1957-77.*
     -   Planet Ilunga.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ignacio Maria Gomez
     
@@ -142,7 +142,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Belesia.*
     -   Helico Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Laraaji
     
@@ -151,7 +151,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Celestial Vibration.*
     -   Numero Group.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Trá Pháidín
     
@@ -160,7 +160,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *An 424 (Expanded).*
     -   Hive Mind Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ganavya
     
@@ -169,7 +169,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Nilam.*
     -   LEITER.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gabriel Brady
     
@@ -178,7 +178,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Day-blind.*
     -   Tonal Union.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Curtis Mayfield
     
@@ -187,9 +187,9 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Curtis!.*
     -   Curtom.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hiroshi Yoshimura
     
@@ -198,7 +198,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Flora.*
     -   Temporal Drift.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alan Graves
     
@@ -207,7 +207,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *A Possible Wind.*
     -   Bathysphere Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Antonina Nowacka
     
@@ -216,7 +216,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Sylphine Soporifera.*
     -   Mondoj.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Cole Pulice
     
@@ -225,7 +225,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Land's End Eternal.*
     -   LEAVING RECORDS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Carl Pfeil
     
@@ -233,7 +233,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     
     -   *Dingling Dangling In The Morning And In The Evening.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lamin Fofana
     
@@ -242,7 +242,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Chromesthesia: The Colour of Sound Vol. 1.*
     -   Chromesthesia.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Maria Somerville
     
@@ -251,7 +251,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Luster.*
     -   4AD.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Saito Koji
     
@@ -259,7 +259,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     
     -   *Haruno.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rindert Lammers
     
@@ -268,7 +268,7 @@ Plus, we hear from North London musician, composer and producer The Vernon Sprin
     -   *Thank You Kirin Kiki.*
     -   Western Vinyl.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Sylvers
     

@@ -26,7 +26,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Norman Luboff Choir
     
@@ -35,7 +35,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Songs Of The South.*
     -   Columbia.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Laura Cannell
     
@@ -44,7 +44,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *A Compendium of Beasts Volume 2.*
     -   Brawl Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Chiwoniso
     
@@ -53,7 +53,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Zvichapera.*
     -   Nyami Nyami Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lolo
     
@@ -62,7 +62,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Lolo.*
     -   Black Sweat Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tamba Trio
     
@@ -71,7 +71,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Tempo.*
     -   Philips.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tartine de Clous
     
@@ -80,7 +80,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Compter les dents.*
     -   Okraina Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bulgarian State Television Female Vocal Choir
     
@@ -89,7 +89,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Le Mystere Des Voix Bulgares Vol.1.*
     -   4AD.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Yazz Ahmed
     
@@ -98,7 +98,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *A Paradise In The Hold.*
     -   Night Time Stories.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Naïssam Jalal
     
@@ -106,7 +106,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     
     -   *Healing Rituals.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### OKI & Anja Ngozi
     
@@ -115,7 +115,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Echoes.*
     -   EarthSonic.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tarta Relena
     
@@ -124,7 +124,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *És pregunta.*
     -   Latency.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### NYX
     
@@ -133,7 +133,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *NYX.*
     -   state51.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### NYX
     
@@ -142,7 +142,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *NYX.*
     -   state51.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jason Moran
     
@@ -150,7 +150,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     
     -   *The Sound Will Tell You.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sullivan Fortner
     
@@ -159,7 +159,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Solo Games.*
     -   Artwork Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joseba Irazoki
     
@@ -168,7 +168,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Gitarra Lekeitioak (Onomatopeikoa II).*
     -   Otoroku.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Confucius MC x Bastien Keb
     
@@ -177,7 +177,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Songs for Lost Travellers.*
     -   Native Rebel Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dry Heart
     
@@ -185,7 +185,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     
     -   *Dry Heart.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Svaneborg Kardyb
     
@@ -194,7 +194,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Superkilen.*
     -   Gondwana Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Beacon Sound Choir
     
@@ -203,7 +203,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Sunday Songs.*
     -   First Terrace Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ai Yamamoto + Dan West
     
@@ -212,13 +212,13 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Microdoses.*
     -   audibleartefacts.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Advent Children
     
     Restoration Meadows (Box5ive's IG Reality Remix)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Annie A
     
@@ -227,7 +227,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *The Wind That Had Not Touched Land.*
     -   A Colourful Storm.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### J
     
@@ -236,7 +236,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Little Lock.*
     -   se Dessaisir Publishing.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Pierce Warnecke
     
@@ -245,7 +245,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Music From Airports.*
     -   Room 40.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Yama Warashi
     
@@ -254,7 +254,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     -   *Moon Egg.*
     -   Stolen Body Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Woo
     
@@ -262,7 +262,7 @@ Elsewhere, there are plenty more heavenly harmonies, sonic rituals and otherworl
     
     -   *Music To Watch Seeds Grow By\].*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Emmanuel Parrenin
     

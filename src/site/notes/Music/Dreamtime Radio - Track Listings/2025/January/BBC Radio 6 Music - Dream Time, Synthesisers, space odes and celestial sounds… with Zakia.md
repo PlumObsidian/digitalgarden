@@ -25,7 +25,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Steven Halpern
     
@@ -34,7 +34,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Starborn Suite.*
     -   Halpern Sounds.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Planetary Peace
     
@@ -43,7 +43,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Synthesis.*
     -   Love All Day.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Cécile McLorin Salvant
     
@@ -52,7 +52,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *M​é​lusine.*
     -   Nonesuch.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hiro Ama
     
@@ -61,7 +61,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Music For Peace and Harmony.*
     -   PRAH Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tarta Relena
     
@@ -70,9 +70,9 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *És pregunta.*
     -   Latency.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Suzanne Ciani
     
@@ -81,7 +81,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *FRKWYS Vol. 13: Sunergy.*
     -   RVNG Intl..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Suzanne Ciani and Jonathan Fitoussi
     
@@ -90,7 +90,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Golden Apples of the Sun.*
     -   Transversales Disques.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Suzanne Ciani and Jonathan Fitoussi & Laurie Anderson & Scott Johnson
     
@@ -99,7 +99,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Women in Electronic Music - 1977.*
     -   New World Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Delia Derbyshire
     
@@ -108,7 +108,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *BBC Radiophonic Music.*
     -   BBC Radio Enterprise.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Maria Teriaeva
     
@@ -116,7 +116,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     
     -   *Sayan - Savoie.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Deathbed Convert
     
@@ -125,7 +125,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Inverse Field Vol 1: Inishowen.*
     -   Touch Sensitive.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ben LaMar Gay
     
@@ -134,7 +134,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Downtown Castles Can Never Block The Sun (IA11 Edition).*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Myriad Forest
     
@@ -142,7 +142,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     
     -   *Just Keep Dancing.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Myriad Forest
     
@@ -150,7 +150,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     
     -   *Just Keep Dancing.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tristan Arp
     
@@ -159,7 +159,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *a pool, a portal.*
     -   Wisdom Teeth.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sister Irene O’Connor
     
@@ -168,7 +168,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Fire Of God's Love.*
     -   Philips.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Suzanne Ciani
     
@@ -177,7 +177,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *A Life In Waves OST.*
     -   Earth Libraries.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Suzanne Ciani
     
@@ -186,7 +186,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *VINT.*
     -   Lapsus Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kinkajous
     
@@ -195,7 +195,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Nothing Will Disappear.*
     -   Running Circle.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Photay
     
@@ -204,7 +204,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Windswept.*
     -   Mexican Summer.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mamman Sani
     
@@ -213,7 +213,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *La Musique Électronique Du Niger.*
     -   Sahel Sounds.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Colloboh
     
@@ -222,7 +222,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Saana Sahel EP.*
     -   Leaving Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Libby Heaney & Nabihah Iqbal
     
@@ -231,7 +231,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *The Whole Earth Chanting.*
     -   Radar.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Yumiko Morioka & Takashi Kokubo
     
@@ -240,7 +240,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Gaiaphilia.*
     -   Métron Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kit Grill
     
@@ -249,7 +249,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Visitor I / Visitor II.*
     -   Primary Colours.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Julia E. Dyck
     
@@ -258,7 +258,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Introduction to Somnambulism.*
     -   rohs! records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Wil Bolton
     
@@ -267,7 +267,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *South of the Lake.*
     -   quiet details.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Erik Klinga
     
@@ -276,7 +276,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Elusive Shimmer.*
     -   thanatosis.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Manja Ristić
     
@@ -285,7 +285,7 @@ All these synthesized sounds are in honour of this week’s special guest - the 
     -   *Rings of Water.*
     -   Flag Day Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Paul McCartney
     

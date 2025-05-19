@@ -24,7 +24,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Green Cosmos
     
@@ -33,7 +33,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Abendmusiken.*
     -   Frederiksberg Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Miriam Makeba
     
@@ -42,7 +42,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *An Evening with Belafonte/Makeba.*
     -   RCA Victor.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sam Gendel & Fabiano Do Nascimento
     
@@ -51,7 +51,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *The Room.*
     -   Real World Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Papá Roncón
     
@@ -60,7 +60,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Juyungo: Afro-Indigenous Music From The Northwestern Andes.*
     -   Honest Jon's.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Unknown to Known
     
@@ -69,7 +69,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Lightship.*
     -   Unknown to Known.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Toti Soler
     
@@ -78,7 +78,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Toti Soler.*
     -   Munster Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Nubya Garcia
     
@@ -87,7 +87,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Odyssey.*
     -   Concord Jazz.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Vernon Spring
     
@@ -96,7 +96,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *A Plane Over Woods.*
     -   Lima Limo Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Vernon Spring
     
@@ -105,7 +105,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *A Plane Over Woods.*
     -   Lima Limo Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sunlight
     
@@ -114,7 +114,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Creation of Sunlight.*
     -   Guerssen Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### anaiis & Grupo Cosmo
     
@@ -123,7 +123,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *anaiis & Grupo Cosmo.*
     -   5dB Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### L’Rain
     
@@ -132,7 +132,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *TRA​И​Ƨ​A.*
     -   Red Hot Org.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Max Winter
     
@@ -141,7 +141,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Lean Into Me / O Matter - (zero​)​one.*
     -   untitled (recs).
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Shabaka Hutchings
     
@@ -150,7 +150,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Possession EP.*
     -   Impulse!.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ace of Cups
     
@@ -159,7 +159,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *It's Bad For You But Buy It!.*
     -   Ace Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jorga Mesfin
     
@@ -168,7 +168,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *The Kindest One.*
     -   Muzikawi.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Violence Gratuite
     
@@ -177,7 +177,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Baleine à Boss.*
     -   HAKUNA KULALA.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Michaela Antalová & Adrian Myhr
     
@@ -186,7 +186,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Sing Nightingale.*
     -   mappa.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### HYUKOH & Sunset Rollercoaster
     
@@ -195,7 +195,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *AAA.*
     -   Genie Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bibio
     
@@ -204,7 +204,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Phantom Brickworks.*
     -   Warp.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alice Boyd
     
@@ -212,7 +212,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     
     -   *Cloud Walking.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Laurie Torres
     
@@ -221,7 +221,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Apr​è​s coup.*
     -   Tonal Union.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Leya
     
@@ -230,7 +230,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *I Forget Everything.*
     -   NNA Tapes.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Roberto Musci
     
@@ -239,7 +239,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Goodbye Monsters.*
     -   soave.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Anoushka Shankar
     
@@ -248,7 +248,7 @@ Plus the London saxophonist, composer and bandleader Nubya Garcia whisks us off 
     -   *Chapter II: How Dark It Is Before Dawn.*
     -   LEITER.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Planetary Peace
     

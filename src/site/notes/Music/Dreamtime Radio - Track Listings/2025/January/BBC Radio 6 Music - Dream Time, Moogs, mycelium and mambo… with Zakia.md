@@ -25,7 +25,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Xiame
     
@@ -34,7 +34,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Xiame.*
     -   veraBra Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Junee
     
@@ -43,7 +43,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Oc​é​an Oublié / Assordante.*
     -   Stone Pixels.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rüdiger Oppermann's Harp Attack
     
@@ -52,7 +52,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Tropical Drums of Deutschland.*
     -   Music for Dreams.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Steve Beresford
     
@@ -61,7 +61,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Uneven Paths: Deviant Pop From Europe 1980​-​1991.*
     -   Music from Memory.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Nico Georis
     
@@ -70,7 +70,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Plant Music Vol​.​3 - The Golden Teachers.*
     -   LEAVING RECORDS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dean Rodney Jr. & The Cowboys
     
@@ -78,7 +78,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     
     -   *The Yeehaw Moment.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Yu Ching
     
@@ -87,7 +87,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *The Crystal Hum.*
     -   Night School.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Twin Cosmos
     
@@ -96,7 +96,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Double Action.*
     -   Left Ear Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bog Band
     
@@ -104,7 +104,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     
     -   *Vanity Project.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Cocteau Twins
     
@@ -113,19 +113,19 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Iceblink Luck.*
     -   4AD.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dean Rodney Jr
     
     Having A Yeehaw!
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dean Rodney Jr
     
     Strange Dream
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### K. Leimar
     
@@ -134,7 +134,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *A Period of Review (Original Recordings: 1975 - 1983).*
     -   RVNG Intl..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Richard Lee Evans
     
@@ -143,7 +143,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Reds.*
     -   Twilight Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Philipp Johann Thimm
     
@@ -152,7 +152,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Future Sounds Of Kraut Vol. 3 - Compiled by Fred und Luna.*
     -   Compost Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dog Unit
     
@@ -161,7 +161,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *At Home, Still.*
     -   Brace Yourself Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Wally Badarou
     
@@ -170,7 +170,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Echoes.*
     -   Island.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Xuxa
     
@@ -179,7 +179,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Sexto Sentido.*
     -   Som Livre.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Frank Chickens
     
@@ -188,7 +188,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Ninja Legends 1983-1989.*
     -   Cherry Red.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Yanling
     
@@ -197,7 +197,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Cymatic.*
     -   Aurora Editions.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Danielle Boutet
     
@@ -206,7 +206,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Pi​è​ces.*
     -   Freedom to Spend.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Will Samson
     
@@ -215,7 +215,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Songs Of Beginning And Belonging.*
     -   Dauw.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Saint Etienne
     
@@ -224,7 +224,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *The Night.*
     -   Heavenly Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gianni Gebbia
     
@@ -233,7 +233,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Gianni Gebbia.*
     -   Utopia Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Adam Coney & Richard Pike
     
@@ -242,7 +242,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Driftingland: For Guitar & Piano, Vol. I.*
     -   Trestle Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sam Wilkes
     
@@ -251,7 +251,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Sam Wilkes, Craig Weinrib, and Dylan Day.*
     -   LEAVING RECORDS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Group Listening
     
@@ -260,7 +260,7 @@ Plus we hear from special guest Dean Rodney Jr. - a prolific writer, musician an
     -   *Walks.*
     -   PRAH Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Signs
     
