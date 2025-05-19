@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Goodness for the soul… with Zakia](https://www.bbc.co.uk/programmes/m0024ftd)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 3 Nov 2024
 ## Goodness for the soul… with Zakia

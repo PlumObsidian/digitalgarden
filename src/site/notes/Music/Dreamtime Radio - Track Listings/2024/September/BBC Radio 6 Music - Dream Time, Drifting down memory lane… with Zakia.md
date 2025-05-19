@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Drifting down memory lane… with Zakia](https://www.bbc.co.uk/programmes/m00234gt)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 29 Sep 2024
 ## Drifting down memory lane… with Zakia

@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, A labyrinth of dreams… with Zakia](https://www.bbc.co.uk/programmes/m0023p2n)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 13 Oct 2024
 ## A labyrinth of dreams… with Zakia

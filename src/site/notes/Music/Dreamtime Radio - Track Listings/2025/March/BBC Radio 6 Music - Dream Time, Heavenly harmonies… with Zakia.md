@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Heavenly harmonies… with Zakia](https://www.bbc.co.uk/programmes/m0028rgy)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 
 Sun 16 Mar 2025

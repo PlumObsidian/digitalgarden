@@ -6,7 +6,7 @@
 
 # [BBC Radio 6 Music - Dream Time, Warming tones and saxophones… with Zakia](https://www.bbc.co.uk/programmes/m0025mbj)
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 8 Dec 2024
 ## Warming tones and saxophones… with Zakia

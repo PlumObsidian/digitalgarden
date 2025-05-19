@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Folklore, pipes and psychedelic selections … with Zakia](https://www.bbc.co.uk/programmes/m0025589)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 24 Nov 2024
 ## Folklore, pipes and psychedelic selections … with Zakia

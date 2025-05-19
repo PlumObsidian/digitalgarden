@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Moogs, mycelium and mambo… with Zakia](https://www.bbc.co.uk/programmes/m0026mn8)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 12 Jan 2025
 ## Moogs, mycelium and mambo… with Zakia

@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Synthesisers, space odes and celestial sounds… with Zakia](https://www.bbc.co.uk/programmes/m00274hl)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 26 Jan 2025
 ## Synthesisers, space odes and celestial sounds… with Zakia

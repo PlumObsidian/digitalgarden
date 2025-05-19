@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Musical dreams of 2024… with Zakia](https://www.bbc.co.uk/programmes/m00269xl)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 29 Dec 2024
 ## Musical dreams of 2024… with Zakia

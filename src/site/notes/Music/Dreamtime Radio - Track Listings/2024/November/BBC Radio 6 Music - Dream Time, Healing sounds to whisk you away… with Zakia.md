@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Healing sounds to whisk you away… with Zakia](https://www.bbc.co.uk/programmes/m0024xjv)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 17 Nov 2024
 ## Healing sounds to whisk you away… with Zakia

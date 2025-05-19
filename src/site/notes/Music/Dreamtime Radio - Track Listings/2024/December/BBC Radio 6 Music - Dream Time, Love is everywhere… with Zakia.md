@@ -6,7 +6,7 @@
 
 # [BBC Radio 6 Music - Dream Time, Love is everywhere… with Zakia](https://www.bbc.co.uk/programmes/m0025vm2)
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 15 Dec 2024
 ## Love is everywhere… with Zakia

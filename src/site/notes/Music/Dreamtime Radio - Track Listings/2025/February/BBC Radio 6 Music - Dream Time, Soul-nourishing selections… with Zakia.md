@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Soul-nourishing selections… with Zakia](https://www.bbc.co.uk/programmes/m0027bz3)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 Sun 2 Feb 2025
 ## Soul-nourishing selections… with Zakia
 

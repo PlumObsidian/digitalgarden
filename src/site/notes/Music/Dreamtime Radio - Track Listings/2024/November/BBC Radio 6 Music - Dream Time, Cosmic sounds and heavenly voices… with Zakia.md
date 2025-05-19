@@ -6,7 +6,7 @@
 
 # [BBC Radio 6 Music - Dream Time, Cosmic sounds and heavenly voices… with Zakia](https://www.bbc.co.uk/programmes/m0024m6n)
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 10 Nov 2024
 ## Cosmic sounds and heavenly voices… with Zakia

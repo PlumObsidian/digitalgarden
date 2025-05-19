@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Soothing sounds… with Zakia](https://www.bbc.co.uk/programmes/m0027k6r)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 9 Feb 2025
 ## Soothing sounds… with Zakia

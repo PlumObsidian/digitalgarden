@@ -7,7 +7,7 @@
 # [BBC Radio 6 Music - Dream Time, Lift your spirits… with Zakia](https://www.bbc.co.uk/programmes/m002820z)
 
 
-![](/img/user/ReadItLater Inbox/assets/p0jw95p4.jpg)
+[![](https://ichef.bbci.co.uk/images/ic/640x360/p0jw95p4.jpg)
 
 Sun 23 Feb 2025
 ## Lift your spirits… with Zakia
