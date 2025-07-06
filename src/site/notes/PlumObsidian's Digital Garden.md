@@ -4,7 +4,7 @@
 
 
 # Notes from PlumObsidian
-![[Chapel.png\|Chapel.png]]
+![Chapel.png](/img/user/Artwork/Chapel.png)
 Welcome In!
 
 This is my Digital Garden:

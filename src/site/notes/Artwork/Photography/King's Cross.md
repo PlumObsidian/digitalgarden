@@ -3,7 +3,7 @@
 ---
 
 
-![[20231031_174954-Enhanced.jpg\|20231031_174954-Enhanced.jpg]]
+![20231031_174954-Enhanced.jpg](/img/user/20231031_174954-Enhanced.jpg)
 ![20231031_174357-Enhanced.jpg](/img/user/20231031_174357-Enhanced.jpg)
 
 ![[5-LRM_20180723_113509.jpg\|5-LRM_20180723_113509.jpg]]
