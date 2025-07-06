@@ -9,4 +9,4 @@ Raspotify.
 
 https://github.com/dtcooper/raspotify
 
-![20250425_110715.jpg](/img/user/20250425_110715.jpg)
+![[20250425_110715.jpg\|20250425_110715.jpg]]
