@@ -20,7 +20,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mal Waldron
     
@@ -29,7 +29,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Candy Girl.*
     -   Strut Record.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kokoroko & LULU.
     
@@ -38,7 +38,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Tuff Times Never Last.*
     -   Brownswood Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Nadeem Din‐Gabisi
     
@@ -47,7 +47,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *OFFSHORE.*
     -   Moshi Moshi Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Laurie Torres
     
@@ -56,7 +56,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *\[Interieurs (Jeremiah Chiu Remix).*
     -   Tonal Union.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Laura Groves
     
@@ -65,7 +65,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Scenic Route - The Road Less Travelled Vol.1, Scenic.*
     -   Route Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Walter Hawkins
     
@@ -74,7 +74,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Psychemagik presents Magik Sunrise.*
     -   Leng Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Azymuth & Luisa
     
@@ -83,7 +83,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Luisa.*
     -   Far Out Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Los Wembler’s de Iquitos
     
@@ -92,7 +92,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *SONIDO AMAZÓNICO.*
     -   Vampisoul Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gwenifer Raymond
     
@@ -101,7 +101,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Last Night I Heard The Dog Star Bark.*
     -   We Are Busy Bodies.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Andy Bey
     
@@ -110,7 +110,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Shades of Bey.*
     -   12th Street Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Laura Groves
     
@@ -119,7 +119,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Yes.*
     -   Bella Union.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bitchin Bajas
     
@@ -128,13 +128,13 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Inland See.*
     -   Drag City Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sally Oldfield
     
     Water Bearer
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rotary Connection
     
@@ -143,7 +143,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Hey, Love.*
     -   BGP Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Chaka Khan
     
@@ -152,7 +152,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *What Cha’ Gonna Do For Me.*
     -   Warner Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Nick & Samantha & Chris Coco
     
@@ -160,7 +160,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     
     -   Club Tropicana / Dub Tropicana.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joanne Robertson & Oliver Coates
     
@@ -169,7 +169,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Blurrr.*
     -   AD93 Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Keith Tippett
     
@@ -178,7 +178,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *The Unlonely Raindancer - 81CD.*
     -   Discus Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Timothy Gray
     
@@ -187,7 +187,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *\[Lost Coast: Some Visionary Music from California, 1980–1992.*
     -   Goaty Tapes / House Rules Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hiroyuki Onogawa
     
@@ -196,7 +196,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *August in the Water: Music for Film 1995-2005.*
     -   Mana Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hiroshi Yoshimura
     
@@ -205,7 +205,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Wet Land.*
     -   Eastworld.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### M. Sage
     
@@ -213,7 +213,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     
     -   RVNG. Intl..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Diane Barbé
     
@@ -221,7 +221,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     
     -   *A Conference of Critters - Forms of Minutia.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dream Trio
     
@@ -230,7 +230,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Dream Trio.*
     -   Leaving Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rafael Toral
     
@@ -239,7 +239,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Music For Film.*
     -   Self - Released.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### White Paddy Mountain & Nailah Hunter
     
@@ -247,7 +247,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     
     -   *Lucid Dreams.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Christian Winther, Anja Lauvdal & Espen Reinertsen
     
@@ -256,7 +256,7 @@ Plus, heavenly vocals from the likes of Chaka Khan, Sally Oldfield and Minnie Ri
     -   *Night As Day Day As Night.*
     -   Sofa Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Mamas & the Papas
     

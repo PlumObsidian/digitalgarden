@@ -22,7 +22,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kate Taylor
     
@@ -31,7 +31,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *You Can Close Your Eyes / Handbags & Gladrags.*
     -   Atlantic.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Tom Skinner
     
@@ -40,7 +40,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Kaleidoscopic Visions.*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Asha Puthli Accompanied By The Surfers
     
@@ -49,7 +49,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Asha Puthli.*
     -   Columbia.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Twice as Nice
     
@@ -58,7 +58,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Maybe I'm Dreaming.*
     -   Anthology Recording.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The New Eves
     
@@ -67,7 +67,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *The New Eve Is Rising.*
     -   Transgressive.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Organic Pulse Ensemble
     
@@ -76,7 +76,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Oppression Is Nine Tenths Of The Law.*
     -   RR Gems.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Edu Lobo
     
@@ -85,9 +85,9 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Camaleão.*
     -   Philips.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sir Edward
     
@@ -96,7 +96,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *THE POWER OF FEELING.*
     -   Jazz Room Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kutiman
     
@@ -105,7 +105,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Dreams In Aspamia.*
     -   Kartel Music Group.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rahill
     
@@ -114,7 +114,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Flowers At Your Feet.*
     -   Big Dada.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kourosh Yaghmaei
     
@@ -123,7 +123,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Back From The Brink: Pre-Revolution Psychedelic Rock From Iran: 1973-1979.*
     -   Now-Again Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Negro Leo
     
@@ -131,7 +131,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     
     -   *Água Batizada.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mariana Ingold
     
@@ -140,7 +140,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *TODO DEPENDE.*
     -   Left Ear Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Durutti Column
     
@@ -149,7 +149,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *The Return of the Durutti Column.*
     -   Factory Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Paul Lowe
     
@@ -158,13 +158,13 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Let's Work It Out / Make Things Better.*
     -   STROOM.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Aloisius
     
     piano voicenote layer song
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Beverly Glenn‐Copeland
     
@@ -173,7 +173,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Beverly Copeland.*
     -   CBC.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### John Martyn
     
@@ -182,7 +182,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Bless the Weather.*
     -   Island.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rosie Turton and Miryam Solomon
     
@@ -190,7 +190,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     
     -   *maar.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Catalyst
     
@@ -199,7 +199,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Catalyst.*
     -   Cobblestone.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Lonnie Liston Smith
     
@@ -208,7 +208,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Visions of a New World.*
     -   Flying Dutchman.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Electric Prunes
     
@@ -217,7 +217,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Release of an Oath.*
     -   Reprise.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Primitive Radio Gods
     
@@ -226,7 +226,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *The Cable Guy: Original Motion Picture Soundtrack.*
     -   Columbia.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rahill
     
@@ -235,7 +235,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Flowers At Your Feet.*
     -   Big Dada.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Thievery Corporation
     
@@ -244,7 +244,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Radio Retaliation.*
     -   ESL Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Labi Siffre
     
@@ -253,7 +253,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Crying Laughing Loving Lying.*
     -   Pye International.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Speakers Corner Quartet
     
@@ -262,7 +262,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *Mr Loverman (Original Score).*
     -   OTIH Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joe Meek
     
@@ -271,7 +271,7 @@ Plus, we hear from the New York-based Iranian-American selector and singer-songw
     -   *I Hear a New World.*
     -   Triumph.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Father’s Children
     

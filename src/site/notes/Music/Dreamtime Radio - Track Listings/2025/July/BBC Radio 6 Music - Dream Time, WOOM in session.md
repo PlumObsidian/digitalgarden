@@ -19,7 +19,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gérard Delahaye
     
@@ -28,7 +28,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *La Faridondaine Ou, On L'appellera Comme On.*
     -   Nevenoe Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Chip Wickham
     
@@ -37,7 +37,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *The Eternal Now.*
     -   Gondwana Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mae Powell
     
@@ -46,7 +46,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Making Room for the Light.*
     -   Colemine Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jaime & Nair
     
@@ -55,7 +55,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Jaime & Nair.*
     -   Vampisoul Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Linda Smith
     
@@ -64,7 +64,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *So Long Ago.*
     -   Upset the Rhythm Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mulatu Astatke
     
@@ -73,7 +73,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Mulatu Plays Mulatu.*
     -   strut.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joe Bataan
     
@@ -82,7 +82,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Under the Streetlamp.*
     -   Uptite Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Bondo Girls Choir
     
@@ -91,7 +91,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Kenyan Songs and Strings.*
     -   SWP Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kate Bush
     
@@ -100,7 +100,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Hounds of Love.*
     -   EMI.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### anaiis
     
@@ -109,7 +109,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Devotion & The Black Divine.*
     -   5dB Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Alice
     
@@ -118,7 +118,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Châteaux Faibles.*
     -   Les Disques Bongo Joe.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ryuichi Sakamoto
     
@@ -127,7 +127,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Thousand Knives.*
     -   Better Days Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Memotone
     
@@ -136,7 +136,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Smallest Things.*
     -   World of Echo Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Barbarelle
     
@@ -145,7 +145,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Celesta.*
     -   Hidden Harmony Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### McKay
     
@@ -154,7 +154,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Into You.*
     -   Numero Group Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mark William Lewis
     
@@ -163,7 +163,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Mark William Lewis.*
     -   A24 Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Amina Claudine Myers
     
@@ -172,7 +172,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Solace of the Mind.*
     -   Red Hook Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Les Halles
     
@@ -180,7 +180,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     
     -   *Original Spirit.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### WOOM
     
@@ -188,7 +188,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     
     -   *To Slow You.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### WOOM
     
@@ -196,7 +196,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     
     -   *To Slow You.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### WOOM
     
@@ -204,13 +204,13 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     
     -   *To Slow You.*
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Florian T M Zeisig
     
     Eternal Shore
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ennio Morricone
     
@@ -219,7 +219,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Gli Intoccabili.*
     -   Subsound Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Anja Lauvdal
     
@@ -228,7 +228,7 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Farewell to Faraway Friends (Wurlitzer Improvisations 2021-23).*
     -   Smalltown Supersound.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joanne Robertson & Oliver Coates
     
@@ -237,13 +237,13 @@ Plus, as a Dream Time first, Zakia shares a live session recorded exclusively fo
     -   *Blurrr.*
     -   ad93 records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ida Urd & Ingri Høyland
     
     Duvet
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Patsy Cline
     

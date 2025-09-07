@@ -18,7 +18,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Herbert & Momoko
     
@@ -27,9 +27,9 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Clay.*
     -   Strut Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jeff Parker
     
@@ -38,7 +38,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Gilles Peterson Presents….*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Babo Moreno
     
@@ -47,7 +47,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Babo Moreno.*
     -   Matsuka.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joanna Law
     
@@ -56,7 +56,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Rhythm of Years.*
     -   Tangential Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Adrian Sherwood
     
@@ -65,7 +65,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *The Collapse Of Everything.*
     -   On-U Sound.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gatherers
     
@@ -74,7 +74,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Mr Perry i Presume.*
     -   Pressure Sounds Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Drugdealer & Kate Bollinger
     
@@ -83,7 +83,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Hiding in Plain Sight.*
     -   Mexican Summer.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Macie Stewart
     
@@ -92,7 +92,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *When the Distance is Blue.*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Norma Tanega
     
@@ -101,7 +101,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Walkin’ My Cat Named Dog.*
     -   Stateside Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Zoh Amba
     
@@ -110,7 +110,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Sun.*
     -   Small Town Supersound Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Seki
     
@@ -119,7 +119,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Orbits.*
     -   Soundway Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### ddwy
     
@@ -128,13 +128,13 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Beaming Backwards.*
     -   Test Pressing Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Rodrigo Dias Gomes
     
     Com 6 Anos
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Stanley Clarke
     
@@ -143,7 +143,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *School Days.*
     -   Atlantic Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### The Advancement
     
@@ -152,7 +152,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Mr Norris Changes Brains.*
     -   Eskimo Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### anaiis
     
@@ -160,7 +160,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     
     -   Dream Sequence Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### ሶስና፡ገብረ፡ኢየሱስ
     
@@ -169,7 +169,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *The World Is But a Place of Survival: Begena Songs from Ethiopia.*
     -   Death Is Not The End.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Laurie Torres & Nailah Hunter
     
@@ -178,7 +178,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Correspondence II.*
     -   Tonal Union Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Openness Trio
     
@@ -187,7 +187,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     -   *Openness Trio.*
     -   Blue Note.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mazy Day
     
@@ -195,9 +195,9 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     
     -   Kit Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Kara‐Lis Coverdale
     
@@ -205,7 +205,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     
     -   Smalltown Supersound.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jesse Q-T
     
@@ -213,7 +213,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     
     -   Whited Sepulchre Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sholay
     
@@ -221,7 +221,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     
     -   Amplify Palestine.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Angel Bat Dawid
     
@@ -229,7 +229,7 @@ Elsewhere in the show, we’re joined by Chicago-based multi-instrumentalist and
     
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb.png)
+-   ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Daisy Rickman
     
