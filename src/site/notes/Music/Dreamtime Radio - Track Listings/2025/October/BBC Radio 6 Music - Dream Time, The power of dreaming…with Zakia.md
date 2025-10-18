@@ -22,7 +22,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
 
 ## Music Played
 
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+-   ![](ReadItLater%2![p01c9cjb-1.png](/img/user/ReadItLater%20Inbox/assets/p01c9cjb-1.png)0Inbox/assets/p01c9cjb-1.png)
     
     ### Dorris Henderson & John Renbourn
     
@@ -31,7 +31,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Watch the Stars.*
     -   Fontana Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Pentangle
     
@@ -40,7 +40,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Sweet Child.*
     -   Reprise Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Modha
     
@@ -49,7 +49,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *At Your Pace.*
     -   Sonar Kollektiv.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### anaiis
     
@@ -58,7 +58,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Devotion & The Black Divine.*
     -   5dB Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Oiro Pena
     
@@ -67,7 +67,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Béke.*
     -   Ultraääni Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### aja monet
     
@@ -76,7 +76,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *when the poems do what they do,.*
     -   drink sum wtr..
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Sarah Webster Fabio
     
@@ -85,7 +85,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Boss Soul: 12 Poems by Sarah Webster Fabio.*
     -   Smithsonian Folkways.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Nagat El-Sagheera
     
@@ -94,7 +94,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Eyoun El Alb.*
     -   Wewantsounds.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Jean-Claude Vannier
     
@@ -103,7 +103,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *L’Enfant Assassin Des Mouches.*
     -   Finders Keepers.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Sarathy Korwar
     
@@ -112,7 +112,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *There Is Beauty, There Already.*
     -   Otherland.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Sade
     
@@ -121,7 +121,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Lovers Rock.*
     -   Epic Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Qur'an Shaheed
     
@@ -130,7 +130,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Pulse.*
     -   LEAVING RECORDS.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Wilson Tanner
     
@@ -139,7 +139,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Legends.*
     -   Efficient Space.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Bizimungu Dieudonne
     
@@ -148,7 +148,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Inzovu Y'Imirindi.*
     -   Mississippi Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Phylipe Nunes Araújo
     
@@ -157,7 +157,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Phylipe Nunes Araújo.*
     -   Far Out Recordings.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### WOOM
     
@@ -166,7 +166,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *To Slow You (EP).*
     -   House Anxiety Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Ravi, Bikram Ghosh, Danny Thompson & Lyn Dobson
     
@@ -175,7 +175,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *The Afro-Indian Project (Travels With The African Kora In India).*
     -   ARC Music.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+
     
     ### Judee Sill
     
@@ -184,7 +184,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Judee Sill.*
     -   Asylum Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+-   
     
     ### White Paddy Mountain
     
@@ -193,7 +193,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Lucid Dreams.*
     -   First Terrace Records.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+-   
     
     ### Cerys Hafana
     
@@ -202,7 +202,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Angel.*
     -   Glitterbeat.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+-   
     
     ### Photay with Carlos Niño
     
@@ -211,7 +211,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *More Offerings.*
     -   International Anthem.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+-   
     
     ### Laraaji
     
@@ -220,7 +220,7 @@ Plus, Zakia selects songs to inspire peace and soothe the soul, including some F
     -   *Essense / Universe.*
     -   Audion.
     
--   ![](/img/user/ReadItLater Inbox/assets/p01c9cjb-1.png)
+-   
     
     ### John Martyn
     
