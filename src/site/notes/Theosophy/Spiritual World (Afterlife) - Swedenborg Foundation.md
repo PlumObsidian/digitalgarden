@@ -8,7 +8,7 @@
 
 # [Spiritual World (Afterlife) - Swedenborg Foundation](https://swedenborg.com/emanuel-swedenborg/explore/spiritual-world/?gad_source=1&gclid=Cj0KCQjwpvK4BhDUARIsADHt9sQbZmgbCHLwEdhmLPk1ktaLjQsi7P1kBAubxzIm3pRfb6M-rLlBolIaAs92EALw_wcB)
 
-![An illustration of two people, an orange fox in a barren nature scene. In the distance are three deer. The people, fox, and deer all have white beams of light streaming toward their heads.](/img/user/ReadItLater Inbox/assets/An illustration of two people, an orange fox in a barren nature scene. In the distance are three deer. The people, fox, and deer all have white beams of light streaming toward their heads..jpg)
+![An illustration of two people, an orange fox in a barren nature scene. In the distance are three deer. The people, fox, and deer all have white beams of light streaming toward their heads.](/img/user/ReadItLater%20Inbox/assets/An%20illustration%20of%20two%20people,%20an%20orange%20fox%20in%20a%20barren%20nature%20scene.%20In%20the%20distance%20are%20three%20deer.%20The%20people,%20fox,%20and%20deer%20all%20have%20white%20beams%20of%20light%20streaming%20toward%20their%20heads..jpg)
 
 ##### Table of Contents
 

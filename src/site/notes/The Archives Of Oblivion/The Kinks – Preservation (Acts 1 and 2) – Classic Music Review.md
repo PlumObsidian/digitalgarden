@@ -6,7 +6,7 @@
 
 # [The Kinks – Preservation (Acts 1 and 2) – Classic Music Review](https://altrockchick.com/2013/06/05/classic-music-review-preservation-by-the-kinks-acts-1-and-2/)
 
-![Preservation Combined Revised](/img/user/ReadItLater Inbox/assets/Preservation Combined Revised.jpg)
+![Preservation Combined Revised](/img/user/ReadItLater%20Inbox/assets/Preservation%20Combined%20Revised.jpg)
 
 **Introduction: The Theatrical Period**
 

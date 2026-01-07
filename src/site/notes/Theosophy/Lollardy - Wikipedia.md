@@ -7,13 +7,13 @@
 
 # [Lollardy - Wikipedia](https://en.wikipedia.org/wiki/Lollardy)
 
-[![](/img/user/ReadItLater Inbox/assets/250px-WycliffeYeamesLollards_01.jpg)](https://en.wikipedia.org/wiki/File:WycliffeYeamesLollards_01.jpg)
+[![](/img/user/ReadItLater%20Inbox/assets/250px-WycliffeYeamesLollards_01.jpg)](https://en.wikipedia.org/wiki/File:WycliffeYeamesLollards_01.jpg)
 
 In this 19th-century illustration, [John Wycliffe](https://en.wikipedia.org/wiki/John_Wycliffe "John Wycliffe") is shown giving the Bible translation that bore his name to his Lollard followers.
 
 **Lollardy**[\[a\]](https://en.wikipedia.org/wiki/Lollardy#cite_note-1) was a [proto-Protestant](https://en.wikipedia.org/wiki/Proto-Protestantism "Proto-Protestantism") [Christian](https://en.wikipedia.org/wiki/Christianity "Christianity") religious movement that was active in England from the mid-14th century until the 16th-century [English Reformation](https://en.wikipedia.org/wiki/English_Reformation "English Reformation"). It was initially led by [John Wycliffe](https://en.wikipedia.org/wiki/John_Wycliffe "John Wycliffe"),[\[1\]](https://en.wikipedia.org/wiki/Lollardy#cite_note-2) a [Catholic](https://en.wikipedia.org/wiki/Catholic_Church "Catholic Church") theologian who was dismissed from the [University of Oxford](https://en.wikipedia.org/wiki/University_of_Oxford "University of Oxford") in 1381 for [heresy](https://en.wikipedia.org/wiki/Heresy "Heresy"). The Lollards' demands were primarily for reform of [Western Christianity](https://en.wikipedia.org/wiki/Western_Christianity "Western Christianity"). They formulated their beliefs in the [Twelve Conclusions of the Lollards](https://en.wikipedia.org/wiki/Twelve_Conclusions_of_the_Lollards "Twelve Conclusions of the Lollards"). Early it became associated with [regime change](https://en.wikipedia.org/wiki/Regime_change "Regime change") uprisings and assassinations of high government officials, and was suppressed.
 
-[![](/img/user/ReadItLater Inbox/assets/220px-Lollards_QE4_126.jpg)](https://en.wikipedia.org/wiki/File:Lollards_QE4_126.jpg)
+[![](/img/user/ReadItLater%20Inbox/assets/220px-Lollards_QE4_126.jpg)](https://en.wikipedia.org/wiki/File:Lollards_QE4_126.jpg)
 
 Lollards' prison in [Lambeth Palace](https://en.wikipedia.org/wiki/Lambeth_Palace "Lambeth Palace")
 
@@ -28,7 +28,7 @@ Two other possibilities for the derivation of *Lollard* are mentioned by the *Ox
 -   [Latin](https://en.wikipedia.org/wiki/Latin "Latin") **lolium**, a weedy [vetch](https://en.wikipedia.org/wiki/Vicia_sativa "Vicia sativa") (tares), supposedly a reference to the biblical [Parable of the Tares](https://en.wikipedia.org/wiki/Parable_of_the_Tares "Parable of the Tares") (Matthew 13:24–30);
 -   the surname "Lolhard" of an eminent Franciscan preacher in [Guyenne](https://en.wikipedia.org/wiki/Guyenne "Guyenne"), who converted to the [Waldensian](https://en.wikipedia.org/wiki/Waldensians "Waldensians") way. The region of Guyenne was at that time under English dominion, and his preaching influenced pious lay English. He was burned at [Cologne](https://en.wikipedia.org/wiki/Cologne "Cologne") in the 1370s. Earlier, another Waldensian teacher, also named "Lolhard", was tried for heresy in Austria in 1315.[\[5\]](https://en.wikipedia.org/wiki/Lollardy#cite_note-6)
 
-[![](/img/user/ReadItLater Inbox/assets/260px-Lollardmap.jpg)](https://en.wikipedia.org/wiki/File:Lollardmap.jpg)
+[![](/img/user/ReadItLater%20Inbox/assets/260px-Lollardmap.jpg)](https://en.wikipedia.org/wiki/File:Lollardmap.jpg)
 
 A map of Lollardy's influence. Areas of Lollardy's influence before the death of [Richard II](https://en.wikipedia.org/wiki/Richard_II_of_England "Richard II of England") are in green. Areas where Lollardy spread in the 15th century are in red.
 
@@ -118,7 +118,7 @@ Sixteenth-century [martyrologist](https://en.wikipedia.org/wiki/Martyrologist "M
 -   denial of the doctrine of [transubstantiation](https://en.wikipedia.org/wiki/Transubstantiation "Transubstantiation"), and
 -   a demand for [English translation of the Scriptures](https://en.wikipedia.org/wiki/Bible_translations_into_English "Bible translations into English").[\[29\]](https://en.wikipedia.org/wiki/Lollardy#cite_note-walker-30)
 
-[![](/img/user/ReadItLater Inbox/assets/260px-Wycliffe_John_Gospel.jpg)](https://en.wikipedia.org/wiki/File:Wycliffe_John_Gospel.jpg)
+[![](/img/user/ReadItLater%20Inbox/assets/260px-Wycliffe_John_Gospel.jpg)](https://en.wikipedia.org/wiki/File:Wycliffe_John_Gospel.jpg)
 
 A late 14th-century beginning of the [Gospel of John](https://en.wikipedia.org/wiki/Gospel_of_John "Gospel of John"), starting with a large letter ‘I’ in blue, from a pocket Wycliffe translation. It may have been used by a roving Lollard preacher
 
@@ -140,7 +140,7 @@ A group of gentry active during the reign of [Richard II](https://en.wikipedia.o
 
 There is little indication that the Lollard Knights were specifically known as such during their lifetimes. They were men of discretion, and unlike Sir [John Oldcastle](https://en.wikipedia.org/wiki/John_Oldcastle "John Oldcastle") years later, rarely gave any hint of open rebellion. However, they displayed a remarkable ability to retain important positions, without falling victim to the prosecutions of Wycliffe's followers during their lifetimes.
 
-[![](/img/user/ReadItLater Inbox/assets/170px-Richard_Wyche_at_the_stake%2C_1440.gif)](https://en.wikipedia.org/wiki/File:Richard_Wyche_at_the_stake,_1440.gif)
+[![](/img/user/ReadItLater%20Inbox/assets/170px-Richard_Wyche_at_the_stake%252C_1440.gif)](https://en.wikipedia.org/wiki/File:Richard_Wyche_at_the_stake,_1440.gif)
 
 Lollard Richard Wyche being burnt at the stake in 1440
 
@@ -148,7 +148,7 @@ Religious and secular authorities strongly opposed Lollardy. In eventual respons
 
 By the early 15th century, stern measures were undertaken by Church and state which drove Lollardy underground. One such measure was the 1410 burning at the stake of [John Badby](https://en.wikipedia.org/wiki/John_Badby "John Badby"), a layman and craftsman who refused to renounce his Lollardy. He was the first layman to suffer [capital punishment](https://en.wikipedia.org/wiki/Capital_punishment "Capital punishment") in England for the crime of heresy.
 
-[![](/img/user/ReadItLater Inbox/assets/170px-Oldcastleburning.jpg)](https://en.wikipedia.org/wiki/File:Oldcastleburning.jpg)
+[![](/img/user/ReadItLater%20Inbox/assets/170px-Oldcastleburning.jpg)](https://en.wikipedia.org/wiki/File:Oldcastleburning.jpg)
 
 [John Oldcastle](https://en.wikipedia.org/wiki/John_Oldcastle "John Oldcastle") being burnt for insurrection and Lollard heresy.
 
@@ -182,7 +182,7 @@ The similarity between Lollards and later English Protestant groups, such as the
 
 \[[edit](https://en.wikipedia.org/w/index.php?title=Lollardy&action=edit&section=17 "Edit section: Representations in art and literature")\]
 
-[![Misericord with a carved scene showing a fox preaching from a pulpit to a cockerel and a goose.](/img/user/ReadItLater Inbox/assets/Misericord with a carved scene showing a fox preaching from a pulpit to a cockerel and a goose..jpg)](https://en.wikipedia.org/wiki/File:Fox_preaching_to_the_gullible_fowl.jpg)
+[![Misericord with a carved scene showing a fox preaching from a pulpit to a cockerel and a goose.](/img/user/ReadItLater%20Inbox/assets/Misericord%20with%20a%20carved%20scene%20showing%20a%20fox%20preaching%20from%20a%20pulpit%20to%20a%20cockerel%20and%20a%20goose..jpg)](https://en.wikipedia.org/wiki/File:Fox_preaching_to_the_gullible_fowl.jpg)
 
 Fox preaching to the gullible fowl, misericord (1491–1494), quire at Ripon Cathedral.
 
@@ -203,7 +203,7 @@ The Roman Catholic Church used art as an anti-Lollard weapon. Lollards were repr
 1.  **[^](https://en.wikipedia.org/wiki/Lollardy#cite_ref-1)** Also known as **Lollardism**, or the **Lollard movement**.
 
 1.  **[^](https://en.wikipedia.org/wiki/Lollardy#cite_ref-2)** Roberts, Chris (2006), *Heavy Words Lightly Thrown: The Reason Behind Rhyme*, Thorndike Press, [ISBN](https://en.wikipedia.org/wiki/ISBN_\(identifier\) "ISBN (identifier)") [0-7862-8517-6](https://en.wikipedia.org/wiki/Special:BookSources/0-7862-8517-6 "Special:BookSources/0-7862-8517-6").
-2.  ^ [***a***](https://en.wikipedia.org/wiki/Lollardy#cite_ref-EB1911_3-0) [***b***](https://en.wikipedia.org/wiki/Lollardy#cite_ref-EB1911_3-1)  ![](/img/user/ReadItLater Inbox/assets/20px-Wikisource-logo.svg.png)One or more of the preceding sentences incorporates text from a publication now in the [public domain](https://en.wikipedia.org/wiki/Public_domain "Public domain"): [Chisholm, Hugh](https://en.wikipedia.org/wiki/Hugh_Chisholm "Hugh Chisholm"), ed. (1911). "[Lollards](https://en.wikisource.org/wiki/1911_Encyclop%C3%A6dia_Britannica/Lollards "s:1911 Encyclopædia Britannica/Lollards")". *[Encyclopædia Britannica](https://en.wikipedia.org/wiki/Encyclop%C3%A6dia_Britannica_Eleventh_Edition "Encyclopædia Britannica Eleventh Edition")* (11th ed.). Cambridge University Press.
+2.  ^ [***a***](https://en.wikipedia.org/wiki/Lollardy#cite_ref-EB1911_3-0) [***b***](https://en.wikipedia.org/wiki/Lollardy#cite_ref-EB1911_3-1)  ![](/img/user/ReadItLater%20Inbox/assets/20px-Wikisource-logo.svg.png)One or more of the preceding sentences incorporates text from a publication now in the [public domain](https://en.wikipedia.org/wiki/Public_domain "Public domain"): [Chisholm, Hugh](https://en.wikipedia.org/wiki/Hugh_Chisholm "Hugh Chisholm"), ed. (1911). "[Lollards](https://en.wikisource.org/wiki/1911_Encyclop%C3%A6dia_Britannica/Lollards "s:1911 Encyclopædia Britannica/Lollards")". *[Encyclopædia Britannica](https://en.wikipedia.org/wiki/Encyclop%C3%A6dia_Britannica_Eleventh_Edition "Encyclopædia Britannica Eleventh Edition")* (11th ed.). Cambridge University Press.
 3.  **[^](https://en.wikipedia.org/wiki/Lollardy#cite_ref-4)** cf. English *[lullaby](https://en.wiktionary.org/wiki/lullaby "wikt:lullaby")*, and the modern Dutch and German *lallen* "to babble, to talk drunkenly": ["lallen"](http://www.dwds.de/?qu=lallen). *Digitales Wörterbuch der deutschen Sprache*. November 2022.
 4.  **[^](https://en.wikipedia.org/wiki/Lollardy#cite_ref-5)** "Lollard". *[Oxford English Dictionary](https://en.wikipedia.org/wiki/Oxford_English_Dictionary "Oxford English Dictionary")*. Oxford University Press.
 5.  **[^](https://en.wikipedia.org/wiki/Lollardy#cite_ref-6)** van Bright, T.J. (1886) \[1660\]. *The Bloody Theater or Martyrs Mirror of the Defenseless Christians*. Translated by Joseph F. Sohm (Third English ed.). Scottsdale, Pennsylvania: Herald Press.
@@ -269,7 +269,7 @@ The Roman Catholic Church used art as an anti-Lollard weapon. Lollards were repr
 -   [Spufford, Margaret](https://en.wikipedia.org/wiki/Margaret_Spufford "Margaret Spufford"), ed. (1995). *The World of Rural Dissenters, 1520–1725*. Cambridge: [Cambridge University Press](https://en.wikipedia.org/wiki/Cambridge_University_Press "Cambridge University Press"). [ISBN](https://en.wikipedia.org/wiki/ISBN_\(identifier\) "ISBN (identifier)") [978-0521410618](https://en.wikipedia.org/wiki/Special:BookSources/978-0521410618 "Special:BookSources/978-0521410618").
 -   Thomson, John A. F. (1965). *The Later Lollards, 1414–1520*. Oxford: [Oxford University Press](https://en.wikipedia.org/wiki/Oxford_University_Press "Oxford University Press"). [ISBN](https://en.wikipedia.org/wiki/ISBN_\(identifier\) "ISBN (identifier)") [978-0198213765](https://en.wikipedia.org/wiki/Special:BookSources/978-0198213765 "Special:BookSources/978-0198213765").
 
-[![](/img/user/ReadItLater Inbox/assets/40px-Wikisource-logo.svg.png)](https://en.wikipedia.org/wiki/File:Wikisource-logo.svg)
+[![](/img/user/ReadItLater%20Inbox/assets/40px-Wikisource-logo.svg.png)](https://en.wikipedia.org/wiki/File:Wikisource-logo.svg)
 
 -   [The Lollard Society](http://www.lollardsociety.org/)—society dedicated to providing a forum for the study of the Lollards
 -   ["John Wyclif and the Lollards"](https://www.bbc.co.uk/iplayer/episode/b011vh4k/In_Our_Time_John_Wyclif_and_the_Lollards/) (45 mins.; discussion); episode of *[In Our Time](https://en.wikipedia.org/wiki/In_Our_Time_\(BBC_Radio_4\) "In Our Time (BBC Radio 4)")*, [BBC Radio 4](https://en.wikipedia.org/wiki/BBC_Radio_4 "BBC Radio 4")

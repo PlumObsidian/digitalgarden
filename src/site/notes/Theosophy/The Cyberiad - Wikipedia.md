@@ -11,7 +11,7 @@
 From Wikipedia, the free encyclopedia
 
 The Cyberiad
-| [![](/img/user/ReadItLater Inbox/assets/220px-TheCyberiad.jpg)](https://en.wikipedia.org/wiki/File:TheCyberiad.jpg)  First edition (Polish)   |  |
+| [![](/img/user/ReadItLater%20Inbox/assets/220px-TheCyberiad.jpg)](https://en.wikipedia.org/wiki/File:TheCyberiad.jpg)  First edition (Polish)   |  |
 | --- | --- |
 | Author | [Stanisław Lem](https://en.wikipedia.org/wiki/Stanis%C5%82aw_Lem "Stanisław Lem") |
 | Original title | *Cyberiada* |

@@ -47,7 +47,7 @@ Some excerpts from an interview with Malaclypse the Younger by THE GREATER METRO
 **GP:** Is that the answer to my question?  
 **M2:** No, of course not. That is just illustrative. The answer to your question is FIVE TONS OF FLAX!
 
-![SUSPENDED  ANNIHILATION](/img/user/ReadItLater Inbox/assets/SUSPENDED  ANNIHILATION.gif)
+![SUSPENDED  ANNIHILATION](/img/user/ReadItLater%20Inbox/assets/SUSPENDED%20%20ANNIHILATION.gif)
 
 ---
 

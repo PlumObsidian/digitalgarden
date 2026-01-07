@@ -26,7 +26,7 @@ URL is here: [https://www.literatureandlatte.com/download?product=Scrivener](htt
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F00ca06a9-b3d4-411d-ac30-4519014d8f2e_279x136.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F00ca06a9-b3d4-411d-ac30-4519014d8f2e_279x136.png)
 
 ](https://substackcdn.com/image/fetch/$s_!K97_!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F00ca06a9-b3d4-411d-ac30-4519014d8f2e_279x136.png)
 
@@ -38,7 +38,7 @@ There may be reasons why you don’t want to, there may be reasons why you can�
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Fc885236c-bdc3-4bd2-a6e1-dfa405927ba1_307x98.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252Fc885236c-bdc3-4bd2-a6e1-dfa405927ba1_307x98.png)
 
 ](https://substackcdn.com/image/fetch/$s_!gfUS!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Fc885236c-bdc3-4bd2-a6e1-dfa405927ba1_307x98.png)
 
@@ -62,7 +62,7 @@ We don’t want to run Scrivener as root. We really don’t want to use root mor
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F0a9473ec-bdd7-4ecc-afff-c4ff76868eb0_395x45.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F0a9473ec-bdd7-4ecc-afff-c4ff76868eb0_395x45.png)
 
 ](https://substackcdn.com/image/fetch/$s_!1aen!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F0a9473ec-bdd7-4ecc-afff-c4ff76868eb0_395x45.png)
 
@@ -70,7 +70,7 @@ We don’t want to run Scrivener as root. We really don’t want to use root mor
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F68638cd7-bfdf-42b0-9e69-f7b9c24616d2_523x403.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F68638cd7-bfdf-42b0-9e69-f7b9c24616d2_523x403.png)
 
 ](https://substackcdn.com/image/fetch/$s_!gZzt!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F68638cd7-bfdf-42b0-9e69-f7b9c24616d2_523x403.png)
 
@@ -78,7 +78,7 @@ And I don’t let it do the Desktop Icons.
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F9494f515-1126-4488-9c09-fe150a6ceea9_537x401.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F9494f515-1126-4488-9c09-fe150a6ceea9_537x401.png)
 
 ](https://substackcdn.com/image/fetch/$s_!j_VD!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F9494f515-1126-4488-9c09-fe150a6ceea9_537x401.png)
 
@@ -94,7 +94,7 @@ Start the wine configurator
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Fdcdc11b7-9ffd-4c5e-99a7-5a214c681ec3_423x69.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252Fdcdc11b7-9ffd-4c5e-99a7-5a214c681ec3_423x69.png)
 
 ](https://substackcdn.com/image/fetch/$s_!U5t_!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Fdcdc11b7-9ffd-4c5e-99a7-5a214c681ec3_423x69.png)
 
@@ -102,7 +102,7 @@ Then what this means is your current wine environment was set up before the i386
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F8fd2142e-8729-4909-b159-8e63f1b68316_439x501.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F8fd2142e-8729-4909-b159-8e63f1b68316_439x501.png)
 
 ](https://substackcdn.com/image/fetch/$s_!6cep!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F8fd2142e-8729-4909-b159-8e63f1b68316_439x501.png)
 
@@ -110,7 +110,7 @@ See that “Windows 7” there? Use the pulldown thingy and Make it say Windows 
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F9d5aa63f-dcd9-47a6-b474-c096f1a7a3e5_433x488.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F9d5aa63f-dcd9-47a6-b474-c096f1a7a3e5_433x488.png)
 
 ](https://substackcdn.com/image/fetch/$s_!C7bO!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F9d5aa63f-dcd9-47a6-b474-c096f1a7a3e5_433x488.png)
 
@@ -122,7 +122,7 @@ From the command prompt run:
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F28d908fe-d615-45fa-aed9-a10433edca3b_206x46.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F28d908fe-d615-45fa-aed9-a10433edca3b_206x46.png)
 
 ](https://substackcdn.com/image/fetch/$s_!fBXa!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F28d908fe-d615-45fa-aed9-a10433edca3b_206x46.png)
 
@@ -138,7 +138,7 @@ Now, we need to delete the texttospeech directory. **If we do not, Scrivener wil
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Ff5dc4296-3602-40ec-8ad5-bfef07e42fc6_361x51.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252Ff5dc4296-3602-40ec-8ad5-bfef07e42fc6_361x51.png)
 
 ](https://substackcdn.com/image/fetch/$s_!gkqe!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Ff5dc4296-3602-40ec-8ad5-bfef07e42fc6_361x51.png)
 
@@ -150,7 +150,7 @@ The familiar first-start of Scrivener will show up, there will be a -LOT- of lin
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Fa013137a-881a-4825-87dd-021a6f8608d0_458x477.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252Fa013137a-881a-4825-87dd-021a6f8608d0_458x477.png)
 
 ](https://substackcdn.com/image/fetch/$s_!TsUM!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Fa013137a-881a-4825-87dd-021a6f8608d0_458x477.png)
 
@@ -158,7 +158,7 @@ From this point, go through your usual Scrivener Fresh Install Starting. I just 
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F147ede40-3648-4669-a17b-c3bedbedd45f_665x504.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F147ede40-3648-4669-a17b-c3bedbedd45f_665x504.png)
 
 ](https://substackcdn.com/image/fetch/$s_!itVi!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F147ede40-3648-4669-a17b-c3bedbedd45f_665x504.png)
 
@@ -166,7 +166,7 @@ Which is normal. You should be used to this. You CAN click “Continue Trial” 
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Ffc572187-75cd-4671-bf02-2dc58d6e1a0a_676x525.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252Ffc572187-75cd-4671-bf02-2dc58d6e1a0a_676x525.png)
 
 ](https://substackcdn.com/image/fetch/$s_!tiSp!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Ffc572187-75cd-4671-bf02-2dc58d6e1a0a_676x525.png)
 
@@ -176,7 +176,7 @@ You should see it in the terminal if you are curious (and validating!)
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F4a199447-7752-47a4-893b-c1accd532aad_374x179.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F4a199447-7752-47a4-893b-c1accd532aad_374x179.png)
 
 ](https://substackcdn.com/image/fetch/$s_!OBJj!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F4a199447-7752-47a4-893b-c1accd532aad_374x179.png)
 
@@ -184,7 +184,7 @@ Of course the more important and familiar:
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F2e129a1a-d55e-4982-b0e6-6e7516f143a9_787x538.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F2e129a1a-d55e-4982-b0e6-6e7516f143a9_787x538.png)
 
 ](https://substackcdn.com/image/fetch/$s_!GdP0!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F2e129a1a-d55e-4982-b0e6-6e7516f143a9_787x538.png)
 
@@ -210,7 +210,7 @@ I created a desktop launcher so I can just double-click and it Just Runs. Right 
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F272e68fb-e0fb-479c-afdd-d5a795522334_527x399.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F272e68fb-e0fb-479c-afdd-d5a795522334_527x399.png)
 
 ](https://substackcdn.com/image/fetch/$s_!SRzS!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F272e68fb-e0fb-479c-afdd-d5a795522334_527x399.png)
 
@@ -218,7 +218,7 @@ You will need to alter this to suit your configuration. Click “Save” and giv
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F4eadd0bd-c9e4-44e4-bba6-43dd982af5a5_1595x873.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F4eadd0bd-c9e4-44e4-bba6-43dd982af5a5_1595x873.png)
 
 ](https://substackcdn.com/image/fetch/$s_!8g3o!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F4eadd0bd-c9e4-44e4-bba6-43dd982af5a5_1595x873.png)
 
@@ -236,7 +236,7 @@ Re-open winecfg (As seen in Step 5 above) and under the “Graphics” tab is th
 
 [
 
-![](/img/user/ReadItLater Inbox/assets/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F93a82182-ec74-4e88-b764-3adce4a11709_414x447.png)
+![](/img/user/ReadItLater%20Inbox/assets/https%253A%252F%252Fsubstack-post-media.s3.amazonaws.com%252Fpublic%252Fimages%252F93a82182-ec74-4e88-b764-3adce4a11709_414x447.png)
 
 ](https://substackcdn.com/image/fetch/$s_!-8id!,f_auto,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F93a82182-ec74-4e88-b764-3adce4a11709_414x447.png)
 

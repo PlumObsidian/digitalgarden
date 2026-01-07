@@ -4,7 +4,7 @@
 
 
 
-[![](/img/user/ReadItLater Inbox/assets/p0m9mr91.jpg)](app://obsidian.md/sounds/play/m002l558)
+[![](/img/user/ReadItLater%20Inbox/assets/p0m9mr91.jpg)](app://obsidian.md/sounds/play/m002l558)
 
 ## The Sleeping Forecast with Jarvis Cocker
 

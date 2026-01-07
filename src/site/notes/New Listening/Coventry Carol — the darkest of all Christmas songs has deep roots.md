@@ -10,7 +10,7 @@ This one has always fascinated me.
 
 This mothers’ lament originated in a medieval mystery play
 
-![](/img/user/ReadItLater Inbox/assets/63e4f1c5-878b-4971-9077-9d4f699401ec.jpg)
+![](/img/user/ReadItLater%20Inbox/assets/63e4f1c5-878b-4971-9077-9d4f699401ec.jpg)
 
 Illustration of a mystery play performance from Thomas Sharp’s ‘Coventry Mysteries’, 1825
 

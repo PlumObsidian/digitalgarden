@@ -22,7 +22,7 @@ Mr Earl-Williams said: “Bang, bang, bang, bang. I haven’t slept for 72 hours
 
 “I am 74. I’m comfortably off, I’m not wondering where the next shilling is coming from. But I am not comfortable in wondering what will happen to the heating next.”
 
-![](/img/user/ReadItLater Inbox/assets/earl-edwards-1-1024x724.jpg)
+![](/img/user/ReadItLater%20Inbox/assets/earl-edwards-1-1024x724.jpg)
 
 ***Anthony Earl-Williams liked ‘prowling’ – his word – on Hampstead Heath***
 

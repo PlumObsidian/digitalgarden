@@ -84,6 +84,6 @@ Log in to your account, and start earning points!
 
 This is an optional feature. You can study at W3Schools without using My Learning.
 
- [![Track your progress with at W3Schools.com](/img/user/ReadItLater Inbox/assets/Track your progress with at W3Schools.com.png)](https://my-learning.w3schools.com/)  
+ [![Track your progress with at W3Schools.com](/img/user/ReadItLater%20Inbox/assets/Track%20your%20progress%20with%20at%20W3Schools.com.png)](https://my-learning.w3schools.com/)  
 
 ---

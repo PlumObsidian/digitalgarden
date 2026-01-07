@@ -77,7 +77,7 @@ Not sure where to begin? You need not look any further; [Staticmania](https://st
 
 How To Enabling Comments on Hugo Website with Commento
 
-![thumbnail](/img/user/ReadItLater Inbox/assets/thumbnail.jpg)
+![thumbnail](/img/user/ReadItLater%20Inbox/assets/thumbnail.jpg)
 
 #### Enabling Comments on Hugo Website with Commento
 

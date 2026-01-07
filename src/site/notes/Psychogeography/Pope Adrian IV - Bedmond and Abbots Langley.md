@@ -27,7 +27,7 @@ Paris recounts a story that Nicholas was rejected by [Abbot Robert de Gorron](ht
 
 \[[edit](https://en.wikipedia.org/w/index.php?title=Pope_Adrian_IV&action=edit&section=2 "Edit section: Move to France and promotion")\]
 
-[![Colour photograph of St Albans Abbey, now a cathedral](/img/user/ReadItLater Inbox/assets/Colour photograph of St Albans Abbey, now a cathedral.jpg)](https://en.wikipedia.org/wiki/File:St_Alban%27s_cathedral_-_geograph.org.uk_-_1344.jpg)
+[![Colour photograph of St Albans Abbey, now a cathedral](/img/user/ReadItLater%20Inbox/assets/Colour%20photograph%20of%20St%20Albans%20Abbey,%20now%20a%20cathedral.jpg)](https://en.wikipedia.org/wiki/File:St_Alban%27s_cathedral_-_geograph.org.uk_-_1344.jpg)
 
 St Albans Abbey, now a Cathedral, pictured in 2005
 
@@ -49,7 +49,7 @@ Around mid-1152, he was despatched to [Scandinavia](https://en.wikipedia.org/wik
 
 \[[edit](https://en.wikipedia.org/w/index.php?title=Pope_Adrian_IV&action=edit&section=4 "Edit section: Visit to Scandinavia, 1152")\]
 
-[![modern photo of Trondheim Cathedral](/img/user/ReadItLater Inbox/assets/modern photo of Trondheim Cathedral.jpg)](https://en.wikipedia.org/wiki/File:Trondheim-cathedral-1.jpg)
+[![modern photo of Trondheim Cathedral](/img/user/ReadItLater%20Inbox/assets/modern%20photo%20of%20Trondheim%20Cathedral.jpg)](https://en.wikipedia.org/wiki/File:Trondheim-cathedral-1.jpg)
 
 Trondheim Cathedral, as seen in 2005
 
@@ -67,7 +67,7 @@ Duggan describes Adrian's legation in the north as a "diplomatic triumph",[\[49\
 
 \[[edit](https://en.wikipedia.org/w/index.php?title=Pope_Adrian_IV&action=edit&section=5 "Edit section: Political background")\]
 
-[![map of medieval rome](/img/user/ReadItLater Inbox/assets/map of medieval rome.jpg)](https://en.wikipedia.org/wiki/File:Plan_of_Rome_in_the_Middle_Ages_-_Historical_Atlas_by_William_R._Shepherd,_1923.jpg)
+[![map of medieval rome](/img/user/ReadItLater%20Inbox/assets/map%20of%20medieval%20rome.jpg)](https://en.wikipedia.org/wiki/File:Plan_of_Rome_in_the_Middle_Ages_-_Historical_Atlas_by_William_R._Shepherd,_1923.jpg)
 
 Medieval Rome; the [Leonine City](https://en.wikipedia.org/wiki/Leonine_City "Leonine City") is to the northwest of the city, outside the Leonine Wall (in blue)
 
@@ -103,7 +103,7 @@ Adrian angled for the support of the Emperor in capturing the heretic Arnold.\[*
 
 \[[edit](https://en.wikipedia.org/w/index.php?title=Pope_Adrian_IV&action=edit&section=9 "Edit section: Imperial trouble at Sutri, late 1155")\]
 
-[![contemporary colour illustration of Frederick I](/img/user/ReadItLater Inbox/assets/contemporary colour illustration of Frederick I.jpg)](https://en.wikipedia.org/wiki/File:Frederick_I,_Holy_Roman_Emperor.jpg)
+[![contemporary colour illustration of Frederick I](/img/user/ReadItLater%20Inbox/assets/contemporary%20colour%20illustration%20of%20Frederick%20I.jpg)](https://en.wikipedia.org/wiki/File:Frederick_I,_Holy_Roman_Emperor.jpg)
 
 Frederick I, Holy Roman Emperor, as depicted in a 12th-century chronicle
 
@@ -140,7 +140,7 @@ Following the Imperial coronation, both sides appear to have taken extra care to
 
 \[[edit](https://en.wikipedia.org/w/index.php?title=Pope_Adrian_IV&action=edit&section=11 "Edit section: Normans, Greeks and Apulians")\]
 
-[![map of 12th-century Italy](/img/user/ReadItLater Inbox/assets/map of 12th-century Italy.png)](https://en.wikipedia.org/wiki/File:12th-century_Italy.png)
+[![map of 12th-century Italy](/img/user/ReadItLater%20Inbox/assets/map%20of%2012th-century%20Italy.png)](https://en.wikipedia.org/wiki/File:12th-century_Italy.png)
 
 Map of 12th-century Italy, illustrating the respective boundaries between the Papal States and Patrimony and those claimed by King William and Emperor Frederick
 
@@ -194,7 +194,7 @@ Among other patronages, he confirmed the nuns of [St Mary's Priory](https://en.w
 
 Adrian, suggests the papal scholar [Brenda M. Bolton](https://en.wikipedia.org/w/index.php?title=Brenda_M._Bolton&action=edit&redlink=1 "Brenda M. Bolton (page does not exist)"), had a particularly "special relationship" with his "home abbey" of St Albans, demonstrated in his generous and wide-ranging [privilege](https://en.wikipedia.org/wiki/Privilege_\(canon_law\) "Privilege (canon law)") *Incomprehensibilis*, published in Benevento on 5 February 1156.[\[205\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTEBoltonDuggan2003312%E2%80%93313-249)[\[note 45\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-252) With this grant, Adrian allowed the abbot the right to wear [pontificals](https://en.wikipedia.org/wiki/Pontificals "Pontificals"), thereby effectively removing the abbot from the jurisdiction of Robert de Chesney, his bishop. The monks were also allowed to elect the abbot of their choosing without deference to the bishop. Neither could they be forced by him to allow him or his agents entry to the abbey, or to attend episcopal [synods](https://en.wikipedia.org/wiki/Synod "Synod"). In two follow up letters, Adrian gave the Abbot of St Albans authority to replace the clerks in churches under his jurisdiction with his preferred candidates.[\[206\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTEBolton2003a93-250) Brooke describes Adrian as "rain\[ing\] privilege after privilege upon the abbey.[\[13\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTEBrooke20035-15)
 
-[![colour image of a contemporary document](/img/user/ReadItLater Inbox/assets/colour image of a contemporary document.png)](https://en.wikipedia.org/wiki/File:Adrian_IV_rota.png)
+[![colour image of a contemporary document](/img/user/ReadItLater%20Inbox/assets/colour%20image%20of%20a%20contemporary%20document.png)](https://en.wikipedia.org/wiki/File:Adrian_IV_rota.png)
 
 The *[rota](https://en.wikipedia.org/wiki/Rota_\(papal_signature\) "Rota (papal signature)")* of Pope Adrian IV.[\[208\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTECharter2020-253) The two top quarters contain *Petrus* and *Paulus* respectively (for the saints), while the bottom two show the Pope's name (in this case as ADRI–ANUS) and his regnal number.
 
@@ -208,7 +208,7 @@ The Bull "granted and gave Ireland to King Henry II to hold by hereditary right,
 
 Notes Summerson, "the consequences of the bull were still invisible when Adrian died".[\[5\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTESummerson2004-6) As early as 1317, Adrian's grant to Henry was linked in Ireland to his nationality,[\[223\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTERichter1974195-271)[\[note 49\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-275) and [Domnall, King of Tír Eoghain](https://en.wikipedia.org/wiki/List_of_rulers_of_Tyrone "List of rulers of Tyrone") complained that Adrian should be known as "Anti-Christ rather than true Pope".[\[227\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTEDuggan2003a138%E2%80%93138-276) The Irish called him "a man not only of English descent but also of English inclinations", who "backed his compatriots in what they regarded as the first major confrontation between the two nations",[\[223\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTERichter1974195-271) whereas the Bishop of Thessaloniki praised Adrian as a [pastor](https://en.wikipedia.org/wiki/Pastor "Pastor") ("which is how", comments the scholar [Averil Cameron](https://en.wikipedia.org/wiki/Averil_Cameron "Averil Cameron"), "the Byzantines liked to see the Popes").[\[130\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTECameron201683-159)
 
-[![colour scan of one of Adrian's charters](/img/user/ReadItLater Inbox/assets/colour scan of one of Adrian's charters.jpg)](https://en.wikipedia.org/wiki/File:K.._MOM-Bilddateien._~StiASG2jpgweb._~StiASG_1155~11559999_TTT2\(II\)-Nr3_r.jpg)
+[![colour scan of one of Adrian's charters](/img/user/ReadItLater%20Inbox/assets/colour%20scan%20of%20one%20of%20Adrian's%20charters.jpg)](https://en.wikipedia.org/wiki/File:K.._MOM-Bilddateien._~StiASG2jpgweb._~StiASG_1155~11559999_TTT2\(II\)-Nr3_r.jpg)
 
 Charter of Pope Adrian IV, also beginning *Adrianus eps servus servorum dei*, dated the Lateran, 30 March 1156. Note the Papal [monogram](https://en.wikipedia.org/wiki/Monogram "Monogram"), *[Bene Valete](https://en.wikipedia.org/w/index.php?title=Bene_Valete&action=edit&redlink=1 "Bene Valete (page does not exist)")*, bottom-right-hand corner.[\[208\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTECharter2020-253)
 
@@ -234,7 +234,7 @@ Although his pontificate was a relatively short one—four years, six months and
 
 \[[edit](https://en.wikipedia.org/w/index.php?title=Pope_Adrian_IV&action=edit&section=20 "Edit section: Personal philosophy and religious views")\]
 
-[![image of Pope Adrian's signature](/img/user/ReadItLater Inbox/assets/image of Pope Adrian's signature.png)](https://en.wikipedia.org/wiki/File:Ego_adrianus_Catholicae.png)
+[![image of Pope Adrian's signature](/img/user/ReadItLater%20Inbox/assets/image%20of%20Pope%20Adrian's%20signature.png)](https://en.wikipedia.org/wiki/File:Ego_adrianus_Catholicae.png)
 
 The [autograph](https://en.wikipedia.org/wiki/Autograph "Autograph") of Pope Adrian IV, reading *Ego Adrianus Catholicae*[\[208\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTECharter2020-253)
 
@@ -272,7 +272,7 @@ His biographer, Cardinal Boso,[\[note 62\]](https://en.wikipedia.org/wiki/Pope_A
 
 Modern historiography has not always been complimentary to Adrian. Freed argues that Adrian was capable of both shameful and specious arguments in his dispute with Barbarossa.[\[288\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTEFreed2016252-352) Likewise, [David Abulafia](https://en.wikipedia.org/wiki/David_Abulafia "David Abulafia") has called Adrian "petulant",[\[138\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTEAbulafia198856-167) and Latowsky has criticised his "sarcastic" manner towards Barbarossa.[\[289\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTELatowsky2013163-353)
 
-[![Black and white photo of Adrian's tomb](/img/user/ReadItLater Inbox/assets/Black and white photo of Adrian's tomb.jpg)](https://en.wikipedia.org/wiki/File:Tomb_of_Pope_Adrian_IV.jpg)
+[![Black and white photo of Adrian's tomb](/img/user/ReadItLater%20Inbox/assets/Black%20and%20white%20photo%20of%20Adrian's%20tomb.jpg)](https://en.wikipedia.org/wiki/File:Tomb_of_Pope_Adrian_IV.jpg)
 
 Tomb of Pope Adrian IV, a repurposed [early Christian](https://en.wikipedia.org/wiki/Early_Christian_art_and_architecture "Early Christian art and architecture") sarcophagus
 
@@ -286,7 +286,7 @@ In September 1159—now leading the Emperor's opponents\[*[citation needed](http
 
 Pope Adrian was buried in St Peter's on 4 September 1159. Present were three Imperial ambassadors who had been in attendance on the Pope when he died. They were Otto of Wittelsbach—who had tried to beat up Cardinal Roland at Besançon—[Guido of Biandrate](https://en.wikipedia.org/w/index.php?title=Guido_of_Biandrate&action=edit&redlink=1 "Guido of Biandrate (page does not exist)") and [Heribert of Aachen](https://en.wikipedia.org/w/index.php?title=Heribert_of_Aachen&action=edit&redlink=1 "Heribert of Aachen (page does not exist)").[\[293\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTEFreed2016257-359)[\[note 70\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-368) However, as soon as the Emperor heard of the Pope's death, says Madden, he "sent a group of agents and a great deal of money to Rome" in an attempt to secure the election of a successor with pro-Imperial sympathies.[\[299\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTEMadden201295-369)
 
-[![late-medieval colour depiction of Alexander iii](/img/user/ReadItLater Inbox/assets/late-medieval colour depiction of Alexander iii.png)](https://en.wikipedia.org/wiki/File:Pope_Alexander_III.png)
+[![late-medieval colour depiction of Alexander iii](/img/user/ReadItLater%20Inbox/assets/late-medieval%20colour%20depiction%20of%20Alexander%20iii.png)](https://en.wikipedia.org/wiki/File:Pope_Alexander_III.png)
 
 15th-century [depiction](https://en.wikipedia.org/wiki/Illustrated_manuscript "Illustrated manuscript") of Pope Alexander III, taken from the *[Nuremberg Chronicle](https://en.wikipedia.org/wiki/Nuremberg_Chronicle "Nuremberg Chronicle")* of 1493[\[300\]](https://en.wikipedia.org/wiki/Pope_Adrian_IV#cite_note-FOOTNOTENuremberg_Chronicle2020-370)
 
@@ -312,7 +312,7 @@ The [1159 papal election](https://en.wikipedia.org/wiki/1159_papal_election "115
 
 \[[edit](https://en.wikipedia.org/w/index.php?title=Pope_Adrian_IV&action=edit&section=26 "Edit section: Legacy and assessment")\]
 
-[![](/img/user/ReadItLater Inbox/assets/250px-Pope_Hadrian_IV.jpg)](https://en.wikipedia.org/wiki/File:Pope_Hadrian_IV.jpg)
+[![](/img/user/ReadItLater%20Inbox/assets/250px-Pope_Hadrian_IV.jpg)](https://en.wikipedia.org/wiki/File:Pope_Hadrian_IV.jpg)
 
 In the 14th century Adrian was recorded in St Albans' Book of Benefactors, which, suggests Bolton, "ensured that the memory of the English Pope would remain forever"
 

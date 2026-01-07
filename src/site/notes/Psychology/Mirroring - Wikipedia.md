@@ -8,7 +8,7 @@
 
 From Wikipedia, the free encyclopedia
 
-[![](/img/user/ReadItLater Inbox/assets/lossy-page1-220px-Matera%2C_Italy._Still_unaware_of_despair%2C_a_small_boy_of_Matera%2C_Italy%2C_unconsciously_repeats_the_gesture_of_his..._-_NARA_-_541739.tif.jpg)](https://en.wikipedia.org/wiki/File:Matera,_Italy._Still_unaware_of_despair,_a_small_boy_of_Matera,_Italy,_unconsciously_repeats_the_gesture_of_his..._-_NARA_-_541739.tif)
+[![](/img/user/ReadItLater%20Inbox/assets/lossy-page1-220px-Matera%252C_Italy._Still_unaware_of_despair%252C_a_small_boy_of_Matera%252C_Italy%252C_unconsciously_repeats_the_gesture_of_his..._-_NARA_-_541739.tif.jpg)](https://en.wikipedia.org/wiki/File:Matera,_Italy._Still_unaware_of_despair,_a_small_boy_of_Matera,_Italy,_unconsciously_repeats_the_gesture_of_his..._-_NARA_-_541739.tif)
 
 A young boy mirrors the gesture of his grandmother
 
