@@ -12,8 +12,6 @@ DJ, broadcaster, writer and dreamer Zakia Sewell provides the soundtrack to your
 
 Zakia brings sunshine sounds to blast away the cobwebs and any January blues, with a stack of records from her recent trip to Brazil. Expect some samba, bossa nova, MPB and saudade sounds, with crackly guitars, soaring voices and soul-nurturing rhythms. There are classics from Milton Nascimento, Elis Regina, Baden Powell, Jorge Ben and Joyce, as well as some new discoveries. Plus recent releases from elsewhere, including Kaitlyn Aurelia Smith, Dialect and Ben McElroy.
 
-
-## Music Played
 ## Music Played
 
 - ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
