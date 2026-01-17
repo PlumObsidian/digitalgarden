@@ -14,253 +14,254 @@ Zakia brings sunshine sounds to blast away the cobwebs and any January blues, wi
 
 
 ## Music Played
+## Music Played
 
--   
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Gilberto Mendes
     
     Meu Amigo Koellreutter
     
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Baden Powell
     
     Candomblé
     
-    -   *À Vontade.*
-    -   Elenco.
+    - _À Vontade._
+    - Elenco.
     
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Elis Regina
     
     Nada Sera Como Antes
     
-    -   *Elis.*
-    -   Philips.
+    - _Elis._
+    - Philips.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Green Cosmos
     
     Kalimba Walk
     
-    -   *Morgenmusiken.*
-    -   Frederiksberg Records.
+    - _Morgenmusiken._
+    - Frederiksberg Records.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Michiya Mihashi & Tokyo Cuban Boys
     
     Tsugaru Jongarabushi (Aomoriken Minyo)
     
-    -   *Shamisen Recital.*
-    -   Sound Fuji.
+    - _Shamisen Recital._
+    - Sound Fuji.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sambalanço Trio
     
     O Morro Nao Tem Vez
     
-    -   *Sambalanco Trio.*
-    -   Audio Fidelity.
+    - _Sambalanco Trio._
+    - Audio Fidelity.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### JANINE
     
     Dorotá pt.3
     
-    -   *Dorotá.*
-    -   Seloki Records.
+    - _Dorotá._
+    - Seloki Records.
     
-
+- ![](https://ichef.bbc.co.uk/images/ic/96x96/p01bqf2p.jpg)
     
     ### Milton Nascimento
     
     Saidas E Bandeiras
     
-    -   *Milton.*
-    -   A&M Records.
+    - _Milton._
+    - A&M Records.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jorge Ben Jor
     
     Xica da Silva
     
-    -   *África Brasil.*
-    -   Philips.
+    - _África Brasil._
+    - Philips.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Honey Ltd.
     
     Love (The Devil)
     
-    -   *The Complete LHI Recordings.*
-    -   Light In The Attic.
+    - _The Complete LHI Recordings._
+    - Light In The Attic.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Dialect
     
     Ev'ry Portal Past
     
-    -   *Full Serpent.*
-    -   RVNG Intl.
+    - _Full Serpent._
+    - RVNG Intl.
     
-
+- ![](https://ichef.bbc.co.uk/images/ic/96x96/p04534rq.jpg)
     
     ### Kaitlyn Aurelia Smith
     
     Thoughts on the Future
     
-    -   *Thoughts On The Future.*
-    -   Nettwerk Records.
+    - _Thoughts On The Future._
+    - Nettwerk Records.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Maria Rita
     
     Lamento Africa / Rictus
     
-    -   *Brasileira.*
-    -   Mr Bongo.
+    - _Brasileira._
+    - Mr Bongo.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Joyce
     
     Banana
     
-    -   *Visions of Dawn.*
+    - _Visions of Dawn._
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sueli Costa
     
     Retrato (Sobre O Poema De Cecilia Meireles)
     
-    -   *Sueli Costa.*
-    -   EMI.
+    - _Sueli Costa._
+    - EMI.
     
-
+- ![](https://ichef.bbc.co.uk/images/ic/96x96/p065xxrx.jpg)
     
     ### The Yardbirds
     
     Only The Black Rose
     
-    -   *Little Games.*
-    -   Epic.
+    - _Little Games._
+    - Epic.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Jesse Hackett
     
     Nocturne 2: Lovely Cold Ruins
     
-    -   *Nocturnes.*
-    -   Hive Mind Record.
+    - _Nocturnes._
+    - Hive Mind Record.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Djur Djura
     
     A Seltan Nat Maslaht (King Of The Broom)
     
-    -   *The Best of Djur Djura: Voice of Silence.*
+    - _The Best of Djur Djura: Voice of Silence._
     
-
+- ![](https://ichef.bbc.co.uk/images/ic/96x96/p05700h5.jpg)
     
     ### Gloria Ann Taylor
     
     Deep Inside of You
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Sally Oldfield
     
     Water Bearer
     
-    -   *Water Bearer.*
-    -   Bronze.
+    - _Water Bearer._
+    - Bronze.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Baden Powell and Vinicius de Moraes
     
     Canto de Iemanja
     
-    -   *Os Afro Sambas.*
+    - _Os Afro Sambas._
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Ben McElroy
     
     The Growing Space
     
-    -   *Allotment Tapes #1 - A Different Stillness (with Val Turton).*
+    - _Allotment Tapes #1 - A Different Stillness (with Val Turton)._
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Hiele
     
     Slink d'Ivy
     
-    -   *Emo Inhaler.*
-    -   Stroom.
+    - _Emo Inhaler._
+    - Stroom.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Fielding Daws
     
     Theophrastus
     
-    -   *Yesterday's Weather.*
-    -   Love All Day.
+    - _Yesterday's Weather._
+    - Love All Day.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Polarcoaster
     
     dreams long forgotten
     
-    -   *dreams long forgotten.*
-    -   el manto.
+    - _dreams long forgotten._
+    - el manto.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Patricia Wolf, Alexandra Spence
     
     Soundwalking Across the Hemispheres; Frog Chorus, Cricket Choir
     
-    -   *TwentyTwentyFive: A Dragon's Eye Recordings Mixtape.*
-    -   Dragon's Eye Recordings.
+    - _TwentyTwentyFive: A Dragon's Eye Recordings Mixtape._
+    - Dragon's Eye Recordings.
     
-
+- ![](https://ichef.bbci.co.uk/images/ic/96x96/p01c9cjb.png)
     
     ### Mor Elian
     
     Elderberry Evolution
     
-    -   *Solid Space.*
-    -   topo2.
+    - _Solid Space._
+    - topo2.
     
-
+- ![](https://ichef.bbc.co.uk/images/ic/96x96/p08zkfdb.jpg)
     
     ### Mary Lattimore
     
     Moon over Deetjen's
     
-    -   *Moon Over Deetjen's.*
+    - _Moon Over Deetjen's._
     
-
+- ![](https://ichef.bbc.co.uk/images/ic/96x96/p06v4j79.jpg)
     
     ### David Bowie
     
     The Secret Life of Arabia
     
-    -   *Heroes.*
-    -   RCA.
-    
-
+    - _Heroes._
+    - RCA.
