@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/recording-eq-settings/acoustic-guitar/","tags":["Keep/Label/Mixing","Keep/Label/Acoustic-Guitar"]}
+{"dg-publish":true,"permalink":"/recording-eq-settings/acoustic-guitar/"}
 ---
 
 # Acoustic guitar
